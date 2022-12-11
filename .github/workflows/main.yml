@@ -23,7 +23,7 @@ jobs:
           
       - name: Commit changes
         run: |
-          ${{ secrets.GH_CREDS }}
+          echo "https://${{ secrets.GH_NAME }}:${{ secrets.GH_TOKEN }}@github.com" > .git-credentials
           git config --local user.email ${{ secrets.GH_MAIL }}
           git config --local user.name ${{ secrets.GH_NAME }}
           git config --global --add safe.directory /github/workspace
