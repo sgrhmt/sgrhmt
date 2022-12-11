@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## Don't trust atoms. They make up everything.
