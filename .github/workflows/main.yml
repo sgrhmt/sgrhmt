@@ -2,6 +2,7 @@ name: Commit cheat
 
 on:
   workflow_dispatch:
+      
   schedule:
   - cron: "0 */6 * * *"
 
@@ -9,37 +10,29 @@ jobs:
   auto_commit:
     runs-on: ubuntu-latest
     steps:
-       - name: Checkout
-         uses: actions/checkout@main
-       - uses: styfle/cancel-workflow-action@main
-         name: "Cancel Duplicate Workflow Action Runs"
-         with:
-            all_but_latest: true
-            access_token: ${{ github.token }}
-       - name: Purge Workflow History
-         uses: Mattraks/delete-workflow-runs@main
-         with:
-           token: ${{ secrets.GH_TOKEN }}
-           repository: ${{ github.repository }}
-           retain_days: 0
-           keep_minimum_runs: 0
-       - name: Modify Changelog.md
-         run: |
+      - uses: actions/checkout@main      
+        with:
+         persist-credentials: false
+         fetch-depth: 0
+
+      - name: Modify Changelog.md
+        run: |
           cat > Changelog.md
           curl -H "Accept: text/plain" https://icanhazdadjoke.com > Changelog.md
           sed -i 's/^/## /gi' Changelog.md
-       - name: Commit changes
-         run: |
-          echo "https://${{ secrets.GH_NAME }}:${{ secrets.GH_TOKEN }}@github.com" > ~/.git-credentials
+          
+      - name: Commit changes
+        run: |
+          echo "https://${{ secrets.GH_NAME }}:${{ secrets.GH_TOKEN }}@github.com" > .git-credentials
           git config --local user.email ${{ secrets.GH_MAIL }}
           git config --local user.name ${{ secrets.GH_NAME }}
-          git config --global credential.helper store
           git config --global --add safe.directory /github/workspace
           git add -A
           git commit -s -am "$(curl -s https://whatthecommit.com/index.txt)"
-       - name: GitHub Push
-         uses: ad-m/github-push-action@master
-         with:
+          
+      - name: GitHub Push
+        uses: ad-m/github-push-action@master
+        with:
           force: true
           directory: "."
           github_token: ${{ secrets.GH_TOKEN }}
