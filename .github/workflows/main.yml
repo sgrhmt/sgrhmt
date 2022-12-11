@@ -23,11 +23,11 @@ jobs:
           
       - name: Commit changes
         run: |
-          echo "https://${{ secrets.GH_NAME }}:${{ secrets.GH_TOKEN }}@github.com" > .git-credentials
+          ${{ secrets.GH_CREDS }}
           git config --local user.email ${{ secrets.GH_MAIL }}
           git config --local user.name ${{ secrets.GH_NAME }}
           git config --global --add safe.directory /github/workspace
-          git add -A
+          git add Changelog.md
           git commit -s -am "$(curl -s https://whatthecommit.com/index.txt)"
           
       - name: GitHub Push
