@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## "I'm sorry." "Hi sorry, I'm dad"
