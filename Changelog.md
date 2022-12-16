@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## What do you call a nervous javelin thrower? Shakespeare.
