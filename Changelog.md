@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
