@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## How do you make Lady Gaga cry? Poker face. 
