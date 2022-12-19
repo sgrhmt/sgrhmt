@@ -1,1 +1,1 @@
-## What did the big flower say to the littler flower? Hi, bud!
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
