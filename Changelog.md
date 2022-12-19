@@ -1,1 +1,1 @@
-## What do you call a pig with three eyes? Piiig
+## How many tickles does it take to tickle an octopus? Ten-tickles!
