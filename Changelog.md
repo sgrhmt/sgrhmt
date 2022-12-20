@@ -1,1 +1,1 @@
-## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
+## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
