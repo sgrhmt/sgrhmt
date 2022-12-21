@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## This furniture store keeps emailing me, all I wanted was one night stand!
