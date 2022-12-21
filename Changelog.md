@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## I gave all my dead batteries away today, free of charge.
