@@ -1,1 +1,1 @@
-## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
