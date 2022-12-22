@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
