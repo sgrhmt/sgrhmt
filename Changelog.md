@@ -1,2 +1,1 @@
-## Cosmetic surgery used to be such a taboo subject.
-## Now you can talk about Botox and nobody raises an eyebrow.
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
