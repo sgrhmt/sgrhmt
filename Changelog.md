@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## What is a vampire's favorite fruit? A blood orange.
