@@ -1,1 +1,1 @@
-## What is the tallest building in the world? The library – it’s got the most stories!
+## Why do you never see elephants hiding in trees? Because they're so good at it.
