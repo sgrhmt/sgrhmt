@@ -1,1 +1,1 @@
-## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
