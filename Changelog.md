@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
