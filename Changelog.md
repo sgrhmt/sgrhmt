@@ -1,1 +1,3 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
