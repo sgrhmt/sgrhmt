@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## I was in an 80's band called the prevention. We were better than the cure.
