@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## What is a witch's favorite subject in school? Spelling!
