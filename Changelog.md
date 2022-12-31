@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
