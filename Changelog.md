@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## Ever wondered why bees hum? It's because they don't know the words.
