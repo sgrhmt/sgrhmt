@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
