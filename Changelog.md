@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
