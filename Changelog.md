@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## Why did the kid throw the clock out the window? He wanted to see time fly!
