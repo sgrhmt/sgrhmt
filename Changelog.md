@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## The shovel was a ground-breaking invention.
