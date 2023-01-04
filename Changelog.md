@@ -1,1 +1,1 @@
-## The shovel was a ground-breaking invention.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
