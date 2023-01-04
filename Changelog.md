@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
