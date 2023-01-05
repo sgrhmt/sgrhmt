@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
