@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## I thought about going on an all-almond diet. But that's just nuts.
