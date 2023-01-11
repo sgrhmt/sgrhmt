@@ -1,1 +1,1 @@
-## Can I watch the TV? Dad: Yes, but don’t turn it on.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
