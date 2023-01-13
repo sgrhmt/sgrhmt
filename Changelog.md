@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Why can't a bicycle stand on its own? It's two-tired.
