@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## What did the piece of bread say to the knife? Butter me up.
