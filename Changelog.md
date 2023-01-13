@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
