@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
