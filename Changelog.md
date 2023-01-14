@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## I was thinking about moving to Moscow but there is no point Russian into things.
