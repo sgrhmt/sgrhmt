@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## I got fired from a florist, apparently I took too many leaves.
