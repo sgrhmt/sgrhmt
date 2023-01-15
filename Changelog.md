@@ -1,1 +1,1 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
