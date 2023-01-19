@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## What time did the man go to the dentist? Tooth hurt-y.
