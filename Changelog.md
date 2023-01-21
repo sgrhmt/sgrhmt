@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
