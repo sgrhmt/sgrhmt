@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## Why did the feline fail the lie detector test? Because he be lion.
