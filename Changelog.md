@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Why did the coffee file a police report? It got mugged.
