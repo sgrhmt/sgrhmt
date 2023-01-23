@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
