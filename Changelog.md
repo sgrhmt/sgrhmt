@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
