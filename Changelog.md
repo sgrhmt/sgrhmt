@@ -1,1 +1,3 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
