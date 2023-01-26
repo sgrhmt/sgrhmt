@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## What do you do when your bunny gets wet? You get your hare dryer.
