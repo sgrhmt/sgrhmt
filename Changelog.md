@@ -1,1 +1,3 @@
-## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
+## I used to work at a stationery store.  But, I didn't feel like I was going anywhere.
+## 
+## So, I got a job at a travel agency.  Now, I know I'll be going places.
