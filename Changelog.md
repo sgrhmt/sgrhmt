@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## What do you call a cow with two legs? Lean beef.
