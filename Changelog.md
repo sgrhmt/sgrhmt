@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
