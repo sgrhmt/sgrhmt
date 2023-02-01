@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
