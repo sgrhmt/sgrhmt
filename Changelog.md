@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
