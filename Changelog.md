@@ -1,1 +1,1 @@
-## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
