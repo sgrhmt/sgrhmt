@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Never take advice from electrons. They are always negative.
