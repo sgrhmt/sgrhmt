@@ -1,1 +1,3 @@
-## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
