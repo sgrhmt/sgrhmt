@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## When you have a bladder infection, urine trouble.
