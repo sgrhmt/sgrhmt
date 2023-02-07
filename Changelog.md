@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
