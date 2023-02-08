@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
