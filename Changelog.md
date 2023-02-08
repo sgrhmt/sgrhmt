@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
