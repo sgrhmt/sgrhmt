@@ -1,1 +1,1 @@
-## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
