@@ -1,1 +1,1 @@
-## How do you make a water bed more bouncy. You use Spring Water
+## What do you call an alligator in a vest? An in-vest-igator!
