@@ -1,1 +1,1 @@
-## ‘Put the cat out’ … ‘I didn’t realize it was on fire
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
