@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
