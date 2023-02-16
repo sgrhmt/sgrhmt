@@ -1,2 +1,1 @@
-## Why did Mozart kill all his chickens?
-## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
+## Why did the scarecrow win an award? Because he was outstanding in his field.
