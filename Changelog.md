@@ -1,1 +1,2 @@
-## I’ve just been reading a book about anti-gravity, it’s impossible to put down!
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
