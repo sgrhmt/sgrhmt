@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## What do you do when your bunny gets wet? You get your hare dryer.
