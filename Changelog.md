@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
