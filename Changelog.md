@@ -1,1 +1,1 @@
-## A girl once asked me what my heart desired, apparently blood, oxygen and neural messages were all wrong answers
+## Why is no one friends with Dracula? Because he's a pain in the neck.
