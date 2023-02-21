@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
