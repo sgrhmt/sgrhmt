@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
