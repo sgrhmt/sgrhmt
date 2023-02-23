@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
