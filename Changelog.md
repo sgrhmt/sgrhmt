@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## Thanks for explaining the word "many" to me. It means a lot.
