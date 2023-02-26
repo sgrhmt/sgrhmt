@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## What do you call a duck that gets all A's? A wise quacker.
