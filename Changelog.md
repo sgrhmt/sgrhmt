@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## I just wrote a book on reverse psychology. Do not read it!
