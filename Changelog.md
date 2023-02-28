@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## When is a door not a door? When it's ajar.
