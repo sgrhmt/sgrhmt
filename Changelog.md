@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
