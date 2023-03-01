@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## I had a dream that I was a muffler last night. I woke up exhausted!
