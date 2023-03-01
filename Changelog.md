@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
