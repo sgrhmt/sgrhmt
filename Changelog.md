@@ -1,1 +1,3 @@
-## Why did the barber win the race? He took a short cut.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
