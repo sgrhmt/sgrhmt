@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
