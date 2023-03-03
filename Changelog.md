@@ -1,1 +1,1 @@
-## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
