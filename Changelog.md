@@ -1,1 +1,1 @@
-## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
