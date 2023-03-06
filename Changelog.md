@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
