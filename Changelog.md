@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## What did the beaver say to the tree? It's been nice gnawing you.
