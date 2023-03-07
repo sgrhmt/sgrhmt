@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## I asked a frenchman if he played video games. He said "Wii"
