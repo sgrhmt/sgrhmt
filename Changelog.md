@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## What do you get when you cross a chicken with a skunk? A fowl smell!
