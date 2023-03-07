@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## How do you make a hankie dance? Put a little boogie in it.
