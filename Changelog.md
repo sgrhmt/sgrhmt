@@ -1,1 +1,1 @@
-## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
