@@ -1,1 +1,1 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
