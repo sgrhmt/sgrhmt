@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## What happens to a frog's car when it breaks down? It gets toad.
