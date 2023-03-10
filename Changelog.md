@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## Sore throats are a pain in the neck!
