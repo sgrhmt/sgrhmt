@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## The rotation of earth really makes my day.
