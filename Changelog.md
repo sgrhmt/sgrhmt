@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
