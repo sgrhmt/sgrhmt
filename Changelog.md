@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## I tried to write a chemistry joke, but could never get a reaction.
