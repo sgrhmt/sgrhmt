@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## What did the fish say when it swam into a wall? Damn!
