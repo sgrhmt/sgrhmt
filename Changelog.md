@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-## 
-## They can't control their pupils.
+## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
