@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## I considered building the patio by myself. But I didn't have the stones.
