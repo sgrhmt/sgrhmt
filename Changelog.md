@@ -1,1 +1,1 @@
-## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
+## I just broke my guitar. It's okay, I won't fret
