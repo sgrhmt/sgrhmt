@@ -1,1 +1,1 @@
-## As I suspected, someone has been adding soil to my garden. The plot thickens.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
