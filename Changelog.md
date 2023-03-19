@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## I asked a frenchman if he played video games. He said "Wii"
