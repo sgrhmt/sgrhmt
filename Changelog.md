@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## What kind of magic do cows believe in? MOODOO.
