@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## What do you call a troublesome Canadian high schooler? A poutine.
