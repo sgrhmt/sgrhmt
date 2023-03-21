@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## The urge to sing the Lion King song is just a whim away.
