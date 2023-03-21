@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
