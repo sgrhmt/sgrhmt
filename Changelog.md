@@ -1,1 +1,3 @@
-## What do you call a fish with no eyes? A fsh.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
