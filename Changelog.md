@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## What did the fish say when it swam into a wall? Damn!
