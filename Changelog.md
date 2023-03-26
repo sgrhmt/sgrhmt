@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
