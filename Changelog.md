@@ -1,2 +1,2 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
