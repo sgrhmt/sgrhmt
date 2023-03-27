@@ -1,1 +1,1 @@
-## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
