@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## What do you do when your bunny gets wet? You get your hare dryer.
