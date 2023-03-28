@@ -1,1 +1,1 @@
-## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
+## I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
