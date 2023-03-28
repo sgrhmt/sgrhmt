@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
