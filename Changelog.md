@@ -1,1 +1,1 @@
-## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
