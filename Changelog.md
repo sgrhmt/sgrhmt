@@ -1,1 +1,2 @@
-## Every night at 11:11, I make a wish that someone will come fix my broken clock.
+## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
+## I know he means well.
