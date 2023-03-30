@@ -1,3 +1,1 @@
-## Doctor: Do you want to hear the good news or the bad news?
-## Patient: Good news please.
-## Doctor: we're naming a disease after you.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
