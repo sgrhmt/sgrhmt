@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## I got an A on my origami assignment when I turned my paper into my teacher
