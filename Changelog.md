@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
