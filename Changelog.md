@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
