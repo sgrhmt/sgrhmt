@@ -1,1 +1,1 @@
-## Where do owls go to buy their baby clothes? The owlet malls.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
