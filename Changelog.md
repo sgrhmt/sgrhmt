@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
