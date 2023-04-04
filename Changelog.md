@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
