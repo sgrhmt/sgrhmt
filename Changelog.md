@@ -1,1 +1,1 @@
-## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
