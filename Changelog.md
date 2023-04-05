@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## Why do bees have sticky hair? Because they use honey combs!
