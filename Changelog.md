@@ -1,1 +1,1 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
