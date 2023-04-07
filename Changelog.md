@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
