@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
