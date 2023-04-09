@@ -1,1 +1,1 @@
-## Why did the cookie cry? It was feeling crumby.
+## Why do cows wear bells? Because their horns don't work.
