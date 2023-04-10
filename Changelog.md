@@ -1,1 +1,1 @@
-## I invented a new word! Plagiarism!
+## Where do young cows eat lunch? In the calf-ateria.
