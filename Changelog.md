@@ -1,1 +1,1 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
