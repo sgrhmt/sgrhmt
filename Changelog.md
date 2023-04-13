@@ -1,1 +1,1 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
