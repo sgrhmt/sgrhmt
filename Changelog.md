@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
