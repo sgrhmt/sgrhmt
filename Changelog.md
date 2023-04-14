@@ -1,1 +1,1 @@
-## How do you teach a kid to climb stairs? There is a step by step guide.
+## I couldn't get a reservation at the library. They were completely booked.
