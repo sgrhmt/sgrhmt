@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## What do you call a magician who has lost their magic? Ian.
