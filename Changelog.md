@@ -1,1 +1,1 @@
-## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
