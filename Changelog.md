@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
