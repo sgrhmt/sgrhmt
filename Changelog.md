@@ -1,1 +1,1 @@
-## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
