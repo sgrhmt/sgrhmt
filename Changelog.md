@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## What do you get when you cross a chicken with a skunk? A fowl smell!
