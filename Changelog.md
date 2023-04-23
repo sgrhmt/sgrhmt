@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
