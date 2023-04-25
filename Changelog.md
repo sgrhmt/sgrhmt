@@ -1,1 +1,1 @@
-## When you have a bladder infection, urine trouble.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
