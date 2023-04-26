@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
