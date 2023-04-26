@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## What do you call corn that joins the army? Kernel.
