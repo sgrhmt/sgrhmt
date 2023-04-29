@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## What do prisoners use to call each other? Cell phones.
