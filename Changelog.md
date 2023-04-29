@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## Why don't sharks eat clowns?  Because they taste funny.
