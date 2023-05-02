@@ -1,1 +1,2 @@
-## What kind of bagel can fly? A plain bagel.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
