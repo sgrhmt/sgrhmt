@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## What did Yoda say when he saw himself in 4K? "HDMI"
