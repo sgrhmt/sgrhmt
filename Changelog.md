@@ -1,1 +1,1 @@
-## What did Michael Jackson name his denim store?    Billy Jeans!
+## What do you do when your bunny gets wet? You get your hare dryer.
