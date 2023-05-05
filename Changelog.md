@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
