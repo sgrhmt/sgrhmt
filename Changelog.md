@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## Have you heard about corduroy pillows?  They're making headlines!
