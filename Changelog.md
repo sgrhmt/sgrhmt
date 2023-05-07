@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
