@@ -1,1 +1,1 @@
-## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
+## I can't take my dog to the pond anymore because the ducks keep attacking him. That's what I get for buying a pure bread dog.
