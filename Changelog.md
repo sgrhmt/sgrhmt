@@ -1,1 +1,1 @@
-## Whiteboards ... are remarkable.
+## How does the moon cut his hair? Eclipse it.
