@@ -1,1 +1,1 @@
-## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
+## What do you get hanging from Apple trees? Sore arms.
