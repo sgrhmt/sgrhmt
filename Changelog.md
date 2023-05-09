@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
