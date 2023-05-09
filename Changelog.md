@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## What do you call a duck that gets all A's? A wise quacker.
