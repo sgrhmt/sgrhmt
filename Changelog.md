@@ -1,1 +1,2 @@
-## Why do cows not have toes? They lactose!
+## What's large, grey, and doesn't matter?
+## An irrelephant.
