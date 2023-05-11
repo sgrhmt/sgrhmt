@@ -1,1 +1,2 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
