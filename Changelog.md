@@ -1,1 +1,1 @@
-## I wanted to be a tailor but I didn't suit the job
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
