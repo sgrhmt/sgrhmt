@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
