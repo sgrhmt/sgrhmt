@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## My wife said I was immature. So I told her to get out of my fort.
