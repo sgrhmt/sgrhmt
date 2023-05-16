@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## You know that cemetery up the road? People are dying to get in there.
