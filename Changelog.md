@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
