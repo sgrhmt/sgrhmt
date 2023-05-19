@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
