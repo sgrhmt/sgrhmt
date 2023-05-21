@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## I used to work for a soft drink can crusher. It was soda pressing.
