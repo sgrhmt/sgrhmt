@@ -1,1 +1,1 @@
-## What did the sea say to the sand? "We have to stop meeting like this."
+## How do you find Will Smith in the snow?  Look for fresh prints.
