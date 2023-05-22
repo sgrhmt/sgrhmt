@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## Why are skeletons so calm? Because nothing gets under their skin.
