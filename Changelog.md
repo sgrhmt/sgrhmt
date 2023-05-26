@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## I heard there was a new store called Moderation. They have everything there
