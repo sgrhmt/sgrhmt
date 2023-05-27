@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## What time did the man go to the dentist? Tooth hurt-y.
