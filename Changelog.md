@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## What did the digital clock say to the grandfather clock? Look, no hands!
