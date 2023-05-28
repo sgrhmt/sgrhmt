@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## You can't trust a ladder. It will always let you down
