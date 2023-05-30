@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
