@@ -1,1 +1,2 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
