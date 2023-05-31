@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## What animal is always at a game of cricket? A bat.
