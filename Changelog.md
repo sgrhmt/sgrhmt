@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
