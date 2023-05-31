@@ -1,1 +1,1 @@
-## Some people say that comedians who tell one too many light bulb jokes soon burn out, but they don't know watt they are talking about. They're not that bright.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
