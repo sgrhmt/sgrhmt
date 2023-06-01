@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## What did the ocean say to the beach? Thanks for all the sediment.
