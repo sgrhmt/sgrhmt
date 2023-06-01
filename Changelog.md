@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## Why are mummys scared of vacation? They're afraid to unwind.
