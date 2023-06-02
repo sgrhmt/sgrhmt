@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Want to hear my pizza joke? Never mind, it's too cheesy.
