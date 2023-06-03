@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
