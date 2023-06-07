@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
