@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
