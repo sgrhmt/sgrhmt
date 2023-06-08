@@ -1,1 +1,1 @@
-## Do I enjoy making courthouse puns? Guilty
+## What did one plate say to the other plate? Dinner is on me!
