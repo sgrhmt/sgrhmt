@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## How do you get two whales in a car? Start in England and drive West.
