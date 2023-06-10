@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## It takes guts to be an organ donor.
