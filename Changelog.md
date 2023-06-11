@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
