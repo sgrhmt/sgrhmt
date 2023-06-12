@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## No matter how kind you are, German children are kinder.
