@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## What does a pirate pay for his corn? A buccaneer!
