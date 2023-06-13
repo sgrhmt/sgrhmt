@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## What animal is always at a game of cricket? A bat.
