@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## What kind of award did the dentist receive? A little plaque.
