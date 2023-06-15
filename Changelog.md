@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## My first time using an elevator was an uplifting experience. The second time let me down.
