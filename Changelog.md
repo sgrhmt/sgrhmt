@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Why did the clown have neck pain? - Because he slept funny
