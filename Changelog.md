@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## When does a joke become a dad joke? When it becomes apparent.
