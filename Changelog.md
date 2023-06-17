@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## I was going to get a brain transplant, but I changed my mind
