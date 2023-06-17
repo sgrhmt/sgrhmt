@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
