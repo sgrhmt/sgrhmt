@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
