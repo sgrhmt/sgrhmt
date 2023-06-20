@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## This morning I was wondering where the sun was, but then it dawned on me.
