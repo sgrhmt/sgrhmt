@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
