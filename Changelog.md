@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
