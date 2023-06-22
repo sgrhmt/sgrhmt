@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## Did you know that ghosts call their true love their ghoul-friend?
