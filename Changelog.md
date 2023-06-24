@@ -1,1 +1,1 @@
-## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
