@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## What do you get when you cross a snowman with a vampire? Frostbite.
