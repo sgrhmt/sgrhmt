@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## I'm glad I know sign language, it's pretty handy.
