@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
