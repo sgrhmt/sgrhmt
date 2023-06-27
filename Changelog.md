@@ -1,1 +1,1 @@
-## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
