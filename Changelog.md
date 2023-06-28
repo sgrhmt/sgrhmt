@@ -1,1 +1,1 @@
-## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
