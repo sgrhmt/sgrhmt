@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
