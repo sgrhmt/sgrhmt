@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## How does a scientist freshen their breath? With experi-mints!
