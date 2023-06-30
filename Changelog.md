@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
