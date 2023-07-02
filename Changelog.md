@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## Two peanuts were walking down the street. One was a salted
