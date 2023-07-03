@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## Shout out to my grandma, that's the only way she can hear.
