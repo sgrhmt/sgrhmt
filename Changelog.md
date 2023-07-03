@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## Did you know that ghosts call their true love their ghoul-friend?
