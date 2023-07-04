@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
