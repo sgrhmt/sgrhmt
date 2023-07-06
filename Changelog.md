@@ -1,1 +1,3 @@
-## What do you call a bee that lives in America? A USB.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
