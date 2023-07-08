@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
