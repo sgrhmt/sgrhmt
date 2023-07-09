@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
