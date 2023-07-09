@@ -1,1 +1,1 @@
-## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
