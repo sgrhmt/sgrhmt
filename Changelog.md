@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## A cannibal is someone who is fed up with people.
