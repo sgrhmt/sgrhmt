@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## People are making apocalypse jokes like there’s no tomorrow.
