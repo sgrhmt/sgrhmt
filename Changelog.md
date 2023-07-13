@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
