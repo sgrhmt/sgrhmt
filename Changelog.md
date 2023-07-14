@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
