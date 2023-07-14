@@ -1,1 +1,1 @@
-## Feeling pretty proud of myself. The Sesame Street puzzle I bought said 3-5 years, but I finished it in 18 months.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
