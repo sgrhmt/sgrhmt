@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
