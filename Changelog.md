@@ -1,1 +1,1 @@
-## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
