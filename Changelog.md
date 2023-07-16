@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## What is the leading cause of dry skin? Towels
