@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## How can you tell a vampire has a cold? They start coffin.
