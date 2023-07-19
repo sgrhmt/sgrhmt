@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
