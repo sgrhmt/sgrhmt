@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
