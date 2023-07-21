@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## Breaking news! Energizer Bunny arrested – charged with battery.
