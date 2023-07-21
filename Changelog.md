@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
