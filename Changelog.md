@@ -1,1 +1,3 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
