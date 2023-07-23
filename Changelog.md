@@ -1,1 +1,1 @@
-## Whiteboards ... are remarkable.
+## Why are graveyards so noisy? Because of all the coffin.
