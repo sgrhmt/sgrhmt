@@ -1,1 +1,2 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
