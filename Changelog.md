@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
