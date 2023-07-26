@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## Why did the feline fail the lie detector test? Because he be lion.
