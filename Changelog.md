@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## It doesn't matter how much you push the envelope. It will still be stationary.
