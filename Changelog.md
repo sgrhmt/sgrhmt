@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
