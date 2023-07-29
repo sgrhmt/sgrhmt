@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## What's a ninja's favorite type of shoes? Sneakers!
