@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## Why did the clown have neck pain? - Because he slept funny
