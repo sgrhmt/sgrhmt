@@ -1,1 +1,1 @@
-## Where do fish keep their money? In the riverbank
+## I thought about going on an all-almond diet. But that's just nuts.
