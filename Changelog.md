@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
