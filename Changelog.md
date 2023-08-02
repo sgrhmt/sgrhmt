@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
