@@ -1,1 +1,1 @@
-## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
+## How many bones are in the human hand? A handful of them.
