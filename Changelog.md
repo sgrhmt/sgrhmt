@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## What happens to a frog's car when it breaks down? It gets toad.
