@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## What has ears but cannot hear? A field of corn.
