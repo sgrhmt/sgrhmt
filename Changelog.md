@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## Why did the coffee file a police report? It got mugged.
