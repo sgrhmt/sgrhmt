@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## How many tickles does it take to tickle an octopus? Ten-tickles!
