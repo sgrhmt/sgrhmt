@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
