@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## I couldn't get a reservation at the library. They were completely booked.
