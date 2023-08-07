@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## I tried to write a chemistry joke, but could never get a reaction.
