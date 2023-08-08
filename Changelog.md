@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## What's a ninja's favorite type of shoes? Sneakers!
