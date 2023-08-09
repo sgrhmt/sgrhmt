@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
