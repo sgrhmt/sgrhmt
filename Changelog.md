@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
