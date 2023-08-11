@@ -1,1 +1,1 @@
-## How many apples grow on a tree? All of them!
+## This morning I was wondering where the sun was, but then it dawned on me.
