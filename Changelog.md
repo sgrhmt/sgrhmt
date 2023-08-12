@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
