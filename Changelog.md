@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## I just broke my guitar. It's okay, I won't fret
