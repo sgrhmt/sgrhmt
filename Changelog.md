@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## How do you make Lady Gaga cry? Poker face. 
