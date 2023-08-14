@@ -1,1 +1,1 @@
-## Whiteboards ... are remarkable.
+## The shovel was a ground-breaking invention.
