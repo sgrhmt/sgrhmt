@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## I couldn't get a reservation at the library. They were completely booked.
