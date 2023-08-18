@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
