@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
