@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
