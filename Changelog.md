@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
