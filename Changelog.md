@@ -1,1 +1,1 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## Where do sheep go to get their hair cut? The baa-baa shop.
