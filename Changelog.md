@@ -1,1 +1,1 @@
-## I used to work for a soft drink can crusher. It was soda pressing.
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
