@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## I used to work for a soft drink can crusher. It was soda pressing.
