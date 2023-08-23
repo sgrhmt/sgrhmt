@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
