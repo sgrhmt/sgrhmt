@@ -1,1 +1,1 @@
-## Can February march? No, but April may.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
