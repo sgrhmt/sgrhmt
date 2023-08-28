@@ -1,1 +1,1 @@
-## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
