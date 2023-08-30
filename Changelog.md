@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## I used to work in a shoe recycling shop. It was sole destroying.
