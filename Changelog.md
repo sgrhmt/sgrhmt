@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
