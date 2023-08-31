@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## How does a French skeleton say hello? Bone-jour.
