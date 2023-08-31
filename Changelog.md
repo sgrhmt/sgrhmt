@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## I made a belt out of watches once... It was a waist of time.
