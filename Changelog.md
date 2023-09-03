@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
