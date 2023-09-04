@@ -1,1 +1,2 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
+## I know he means well.
