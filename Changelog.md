@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
