@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
