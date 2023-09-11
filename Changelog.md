@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## I made a belt out of watches once... It was a waist of time.
