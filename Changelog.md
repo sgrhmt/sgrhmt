@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## What did one nut say as he chased another nut?  I'm a cashew!
