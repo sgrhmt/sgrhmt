@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## A cannibal is someone who is fed up with people.
