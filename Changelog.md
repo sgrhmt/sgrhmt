@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## The urge to sing the Lion King song is just a whim away.
