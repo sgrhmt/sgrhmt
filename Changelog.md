@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
