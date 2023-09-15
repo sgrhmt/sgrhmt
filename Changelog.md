@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
