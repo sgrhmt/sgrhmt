@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## Dad, can you put my shoes on? I don't think they'll fit me.
