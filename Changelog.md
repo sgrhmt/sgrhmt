@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
