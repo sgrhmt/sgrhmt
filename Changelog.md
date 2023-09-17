@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
