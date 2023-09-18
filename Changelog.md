@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## Some people eat light bulbs. They say it's a nice light snack.
