@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
