@@ -1,1 +1,1 @@
-## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
+## What do you call two guys hanging out by your window? Kurt & Rod.
