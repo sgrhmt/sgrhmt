@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## It's difficult to say what my wife does, she sells sea shells by the sea shore.
