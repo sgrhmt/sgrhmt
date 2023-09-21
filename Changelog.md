@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## How many bones are in the human hand? A handful of them.
