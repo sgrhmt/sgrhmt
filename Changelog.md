@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
