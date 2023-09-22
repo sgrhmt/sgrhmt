@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## I've got a joke about vegetables for you... but it's a bit corny.
