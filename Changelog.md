@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## My wife said I was immature. So I told her to get out of my fort.
