@@ -1,2 +1,1 @@
-## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
-## I know he means well.
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
