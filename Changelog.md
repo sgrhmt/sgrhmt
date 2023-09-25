@@ -1,1 +1,2 @@
-## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
+## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
+## I know he means well.
