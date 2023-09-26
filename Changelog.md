@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## Why are graveyards so noisy? Because of all the coffin.
