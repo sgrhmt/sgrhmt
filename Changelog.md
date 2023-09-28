@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
