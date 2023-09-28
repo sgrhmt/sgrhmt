@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
