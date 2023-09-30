@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## If two vegans are having an argument, is it still considered beef?
