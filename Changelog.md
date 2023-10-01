@@ -1,1 +1,1 @@
-## I invented a new word! Plagiarism!
+## Our wedding was so beautiful, even the cake was in tiers.
