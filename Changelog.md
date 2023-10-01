@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## I invented a new word! Plagiarism!
