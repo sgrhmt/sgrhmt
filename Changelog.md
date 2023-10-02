@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## What do you call a cow with two legs? Lean beef.
