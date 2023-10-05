@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## What is a tornado's favorite game to play? Twister!
