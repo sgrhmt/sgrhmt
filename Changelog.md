@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## I was going to learn how to juggle, but I didn't have the balls.
