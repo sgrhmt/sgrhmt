@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## Why did the clown have neck pain? - Because he slept funny
