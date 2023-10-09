@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## Someone asked me to name two structures that hold water. I said "Well dam"
