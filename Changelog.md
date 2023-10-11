@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
