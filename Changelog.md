@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## What did Yoda say when he saw himself in 4K? "HDMI"
