@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## What kind of pants do ghosts wear? Boo jeans.
