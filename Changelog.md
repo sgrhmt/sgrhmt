@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
