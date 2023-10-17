@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## Dad, can you put my shoes on? I don't think they'll fit me.
