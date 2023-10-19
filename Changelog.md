@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
