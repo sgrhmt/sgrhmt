@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
