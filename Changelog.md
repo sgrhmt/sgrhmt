@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
