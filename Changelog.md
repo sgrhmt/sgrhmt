@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## What do you get when you cross a pig and a pineapple? A porky pine
