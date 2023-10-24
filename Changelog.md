@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## Why do pirates not know the alphabet? They always get stuck at "C".
