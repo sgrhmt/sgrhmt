@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
