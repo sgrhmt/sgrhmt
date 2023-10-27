@@ -1,1 +1,2 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## What is red and smells like blue paint?
+## Red paint!
