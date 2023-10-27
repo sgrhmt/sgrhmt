@@ -1,1 +1,1 @@
-## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
