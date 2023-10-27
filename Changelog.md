@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## What is the leading cause of dry skin? Towels
