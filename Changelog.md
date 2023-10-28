@@ -1,1 +1,1 @@
-## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
