@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
