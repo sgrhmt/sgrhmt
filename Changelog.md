@@ -1,1 +1,2 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## What do you do when you see a space man?
+## Park your car, man.
