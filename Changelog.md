@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Why is the ocean always blue? Because the shore never waves back.
