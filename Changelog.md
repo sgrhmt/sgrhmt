@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## What do you call a droid that takes the long way around? R2 detour.
