@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
