@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## R.I.P. boiled water. You will be mist.
