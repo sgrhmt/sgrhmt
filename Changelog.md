@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## What happens to a frog's car when it breaks down? It gets toad.
