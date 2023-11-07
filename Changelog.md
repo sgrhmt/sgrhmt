@@ -1,1 +1,2 @@
-## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
