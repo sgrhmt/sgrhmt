@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
