@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
