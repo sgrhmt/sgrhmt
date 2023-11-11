@@ -1,1 +1,3 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
