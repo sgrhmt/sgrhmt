@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## I'll tell you what often gets over looked... garden fences.
