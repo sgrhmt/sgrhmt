@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
