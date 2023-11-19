@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## Where do young cows eat lunch? In the calf-ateria.
