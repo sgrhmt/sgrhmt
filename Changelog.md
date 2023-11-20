@@ -1,1 +1,1 @@
-## What did Michael Jackson name his denim store?    Billy Jeans!
+## How can you tell a vampire has a cold? They start coffin.
