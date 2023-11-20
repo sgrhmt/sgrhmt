@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## Why did the chicken get a penalty? For fowl play.
