@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
