@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## A termite walks into a bar and asks “Is the bar tender here?”
