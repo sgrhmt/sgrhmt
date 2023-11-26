@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
