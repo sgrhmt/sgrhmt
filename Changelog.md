@@ -1,1 +1,1 @@
-## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
