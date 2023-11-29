@@ -1,1 +1,1 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
