@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
