@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## I used to work for an origami company but they folded.
