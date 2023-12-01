@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
