@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
