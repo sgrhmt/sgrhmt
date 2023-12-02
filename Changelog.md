@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
