@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
