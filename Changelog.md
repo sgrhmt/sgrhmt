@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
