@@ -1,1 +1,1 @@
-## What lies at the bottom of the ocean and twitches? A nervous wreck.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
