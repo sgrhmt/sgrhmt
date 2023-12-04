@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
