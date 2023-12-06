@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## Velcro… What a rip-off.
