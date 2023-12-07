@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
