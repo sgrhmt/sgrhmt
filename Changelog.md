@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## It's difficult to say what my wife does, she sells sea shells by the sea shore.
