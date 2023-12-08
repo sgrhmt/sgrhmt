@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## I had a dream that I was a muffler last night. I woke up exhausted!
