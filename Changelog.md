@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
