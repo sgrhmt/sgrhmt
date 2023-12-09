@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## A steak pun is a rare medium well done.
