@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## The shovel was a ground-breaking invention.
