@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
