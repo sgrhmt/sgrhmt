@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## This furniture store keeps emailing me, all I wanted was one night stand!
