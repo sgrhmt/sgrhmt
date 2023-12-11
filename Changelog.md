@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
