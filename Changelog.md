@@ -1,1 +1,1 @@
-## People are shocked to discover I have a police record but I love their greatest hits!
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
