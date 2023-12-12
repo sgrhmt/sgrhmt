@@ -1,1 +1,1 @@
-## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
+## What do you call two guys hanging out by your window? Kurt & Rod.
