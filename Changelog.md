@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
