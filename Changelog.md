@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## What did one plate say to the other plate? Dinner is on me!
