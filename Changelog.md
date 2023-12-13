@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
