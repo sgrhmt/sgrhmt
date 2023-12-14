@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
