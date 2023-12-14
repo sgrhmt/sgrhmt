@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
