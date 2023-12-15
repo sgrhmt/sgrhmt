@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
