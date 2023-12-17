@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## Without geometry life is pointless.
