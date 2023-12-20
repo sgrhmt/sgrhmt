@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## What kind of tree fits in your hand? A palm tree!
