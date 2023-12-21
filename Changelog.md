@@ -1,1 +1,1 @@
-## What kind of magic do cows believe in? MOODOO.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
