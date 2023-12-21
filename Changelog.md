@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
