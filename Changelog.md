@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## I’ve just been reading a book about anti-gravity, it’s impossible to put down!
