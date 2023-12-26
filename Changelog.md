@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## Why are graveyards so noisy? Because of all the coffin.
