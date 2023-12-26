@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## How do you fix a broken pizza? With tomato paste.
