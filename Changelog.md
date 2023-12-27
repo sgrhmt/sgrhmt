@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## Camping is intense.
