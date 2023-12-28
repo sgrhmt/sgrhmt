@@ -1,1 +1,1 @@
-## Have you heard the story about the magic tractor? It drove down the road and turned into a field.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
