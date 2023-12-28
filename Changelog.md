@@ -1,1 +1,3 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
