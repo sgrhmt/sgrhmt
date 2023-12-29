@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-## 
-## They can't control their pupils.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
