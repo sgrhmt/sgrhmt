@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
