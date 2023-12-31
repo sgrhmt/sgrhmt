@@ -1,1 +1,1 @@
-## I was so proud when I finished the puzzle in six months, when on the side it said three to four years.
+## Why do pirates not know the alphabet? They always get stuck at "C".
