@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## I wanted to be a tailor but I didn't suit the job
