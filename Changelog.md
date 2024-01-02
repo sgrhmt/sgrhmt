@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## Why did the scarecrow win an award? Because he was outstanding in his field.
