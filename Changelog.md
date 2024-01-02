@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## How do robots eat guacamole? With computer chips.
