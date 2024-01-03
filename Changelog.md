@@ -1,1 +1,1 @@
-## Dad, can you put my shoes on? I don't think they'll fit me.
+## What's a ninja's favorite type of shoes? Sneakers!
