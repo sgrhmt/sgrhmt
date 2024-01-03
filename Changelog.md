@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
