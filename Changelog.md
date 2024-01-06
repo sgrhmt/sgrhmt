@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
