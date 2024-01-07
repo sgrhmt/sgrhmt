@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## There's not really any training for garbagemen. They just pick things up as they go.
