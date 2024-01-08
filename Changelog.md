@@ -1,1 +1,1 @@
-## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
