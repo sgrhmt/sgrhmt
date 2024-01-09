@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## How many tickles does it take to tickle an octopus? Ten-tickles!
