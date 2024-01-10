@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## What time did the man go to the dentist? Tooth hurt-y.
