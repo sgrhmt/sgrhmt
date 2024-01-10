@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
