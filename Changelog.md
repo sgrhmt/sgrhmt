@@ -1,1 +1,1 @@
-## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+## Have you ever seen fruit preserves being made? It's jarring.
