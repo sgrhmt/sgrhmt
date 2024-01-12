@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## How can you tell a vampire has a cold? They start coffin.
