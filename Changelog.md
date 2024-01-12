@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## The urge to sing the Lion King song is just a whim away.
