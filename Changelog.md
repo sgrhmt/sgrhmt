@@ -1,1 +1,1 @@
-## What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
