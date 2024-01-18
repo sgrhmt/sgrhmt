@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## Never take advice from electrons. They are always negative.
