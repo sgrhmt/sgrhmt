@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
