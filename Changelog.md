@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## Why was the shirt happy to hang around the tank top? Because it was armless
