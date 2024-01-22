@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## A cannibal is someone who is fed up with people.
