@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
