@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
