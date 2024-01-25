@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## I was going to learn how to juggle, but I didn't have the balls.
