@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## Remember, the best angle to approach a problem from is the "try" angle.
