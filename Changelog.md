@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## What did Yoda say when he saw himself in 4K? "HDMI"
