@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
