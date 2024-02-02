@@ -1,1 +1,1 @@
-## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
