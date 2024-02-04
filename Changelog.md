@@ -1,1 +1,2 @@
-## What was a more important invention than the first telephone? The second one.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
