@@ -1,1 +1,1 @@
-## Dad I’m hungry’ … ‘Hi hungry I’m dad
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
