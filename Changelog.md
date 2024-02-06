@@ -1,1 +1,1 @@
-## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
