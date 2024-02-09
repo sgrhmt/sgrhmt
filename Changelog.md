@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
