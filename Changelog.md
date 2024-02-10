@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
