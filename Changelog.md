@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
