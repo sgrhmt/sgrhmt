@@ -1,1 +1,1 @@
-## I accidentally took my cats meds last night. Don’t ask meow.
+## I don't trust sushi, there's something fishy about it.
