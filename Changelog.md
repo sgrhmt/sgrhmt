@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## What did the grape do when he got stepped on? He let out a little wine.
