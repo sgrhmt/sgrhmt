@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## How do you make a hankie dance? Put a little boogie in it.
