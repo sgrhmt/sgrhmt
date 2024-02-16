@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
