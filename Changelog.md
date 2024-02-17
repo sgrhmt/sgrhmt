@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## I went to the doctor today and he told me I had type A blood but it was a type O.
