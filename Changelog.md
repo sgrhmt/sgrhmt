@@ -1,1 +1,3 @@
-## What kind of music do planets listen to? Nep-tunes.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
