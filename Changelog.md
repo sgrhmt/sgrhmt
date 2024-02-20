@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## Is the pool safe for diving? It deep ends.
