@@ -1,1 +1,3 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
