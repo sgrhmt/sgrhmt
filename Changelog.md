@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## No matter how kind you are, German children are kinder.
