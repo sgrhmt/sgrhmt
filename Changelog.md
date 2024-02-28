@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## An apple a day keeps the bullies away. If you throw it hard enough.
