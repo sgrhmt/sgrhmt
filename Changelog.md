@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## I used to be addicted to the hokey pokey, but I turned myself around.
