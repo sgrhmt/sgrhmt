@@ -1,1 +1,1 @@
-## What do you call a pig with three eyes? Piiig
+## I tried to write a chemistry joke, but could never get a reaction.
