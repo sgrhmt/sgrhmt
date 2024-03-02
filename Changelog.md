@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
