@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
