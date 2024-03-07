@@ -1,1 +1,1 @@
-## New atoms frequently lose electrons when they fail to keep an ion them.
+## I tried to write a chemistry joke, but could never get a reaction.
