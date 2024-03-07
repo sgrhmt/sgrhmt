@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## New atoms frequently lose electrons when they fail to keep an ion them.
