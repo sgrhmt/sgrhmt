@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
