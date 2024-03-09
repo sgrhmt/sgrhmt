@@ -1,1 +1,1 @@
-## I used to think I was indecisive, but now I'm not sure.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
