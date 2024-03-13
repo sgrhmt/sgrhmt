@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## When do doctors get angry? When they run out of patients.
