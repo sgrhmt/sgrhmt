@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
