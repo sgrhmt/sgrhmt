@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
