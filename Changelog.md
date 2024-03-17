@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
