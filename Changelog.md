@@ -1,1 +1,1 @@
-## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
