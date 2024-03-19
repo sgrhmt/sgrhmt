@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## Why do birds fly south for the winter? Because it's too far to walk.
