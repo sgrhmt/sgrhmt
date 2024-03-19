@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
