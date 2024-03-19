@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
