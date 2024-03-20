@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
