@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
