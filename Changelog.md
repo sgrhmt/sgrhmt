@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## Where do young cows eat lunch? In the calf-ateria.
