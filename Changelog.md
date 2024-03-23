@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## Why was the shirt happy to hang around the tank top? Because it was armless
