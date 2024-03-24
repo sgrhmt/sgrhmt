@@ -1,1 +1,1 @@
-## What lies at the bottom of the ocean and twitches? A nervous wreck.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
