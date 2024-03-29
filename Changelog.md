@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
