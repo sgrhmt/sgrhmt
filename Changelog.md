@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## What don't watermelons get married? Because they cantaloupe.
