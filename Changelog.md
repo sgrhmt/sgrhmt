@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
