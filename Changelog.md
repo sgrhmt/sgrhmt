@@ -1,1 +1,1 @@
-## I used to work for a soft drink can crusher. It was soda pressing.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
