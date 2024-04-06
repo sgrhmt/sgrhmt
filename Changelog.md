@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## Why did the scarecrow win an award? Because he was outstanding in his field.
