@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
