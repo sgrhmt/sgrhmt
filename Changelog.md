@@ -1,1 +1,1 @@
-## Have you ever seen fruit preserves being made? It's jarring.
+## Why do bears have hairy coats? Fur protection.
