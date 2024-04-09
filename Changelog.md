@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## Have you ever seen fruit preserves being made? It's jarring.
