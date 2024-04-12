@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
