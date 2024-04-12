@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
