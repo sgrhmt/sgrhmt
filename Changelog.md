@@ -1,1 +1,1 @@
-## What do you call two barracuda fish?  A Pairacuda!
+## Why did the belt go to prison? He held up a pair of pants!
