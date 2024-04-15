@@ -1,1 +1,1 @@
-## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
