@@ -1,1 +1,1 @@
-## People are shocked to discover I have a police record but I love their greatest hits!
+## I thought about going on an all-almond diet. But that's just nuts.
