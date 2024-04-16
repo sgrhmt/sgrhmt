@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## What did the beaver say to the tree? It's been nice gnawing you.
