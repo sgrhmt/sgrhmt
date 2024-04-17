@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## What do birds give out on Halloween? Tweets.
