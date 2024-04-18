@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## Have you ever seen fruit preserves being made? It's jarring.
