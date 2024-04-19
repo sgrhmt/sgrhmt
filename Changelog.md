@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## Leather is great for sneaking around because it's made of hide.
