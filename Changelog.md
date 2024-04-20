@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## I just got fired from a florist, apparently I took too many leaves.
