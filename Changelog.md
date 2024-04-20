@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## I just broke my guitar. It's okay, I won't fret
