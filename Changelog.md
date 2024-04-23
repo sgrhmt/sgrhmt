@@ -1,1 +1,2 @@
-## I got fired from the transmission factor, turns out I didn't put on enough shifts...
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
