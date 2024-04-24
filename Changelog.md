@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
