@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## How does a French skeleton say hello? Bone-jour.
