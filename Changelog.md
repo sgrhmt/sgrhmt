@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## How was the snow globe feeling after the storm? A little shaken.
