@@ -1,1 +1,1 @@
-## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
