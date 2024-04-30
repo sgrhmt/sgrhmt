@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## Me and my mates are in a band called Duvet. We're a cover band.
