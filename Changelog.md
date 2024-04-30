@@ -1,1 +1,2 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## Where do cats write notes?
+## Scratch Paper!
