@@ -1,1 +1,1 @@
-## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
+## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
