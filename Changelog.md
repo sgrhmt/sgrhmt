@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
