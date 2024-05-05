@@ -1,1 +1,2 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
