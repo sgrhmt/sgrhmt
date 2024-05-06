@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## It was raining cats and dogs the other day. I almost stepped in a poodle.
