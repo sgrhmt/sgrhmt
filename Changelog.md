@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
