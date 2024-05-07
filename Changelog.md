@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## Man, I really love my furniture... me and my recliner go way back.
