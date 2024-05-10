@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## I have kleptomania, but when it gets bad, I take something for it.
