@@ -1,1 +1,2 @@
-## What do you do on a remote island? Try and find the TV island it belongs to.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
