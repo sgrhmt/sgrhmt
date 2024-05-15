@@ -1,1 +1,1 @@
-## I went to the doctor today and he told me I had type A blood but it was a type O.
+## What do you do on a remote island? Try and find the TV island it belongs to.
