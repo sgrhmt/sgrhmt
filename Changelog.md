@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## How many tickles does it take to tickle an octopus? Ten-tickles!
