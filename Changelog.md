@@ -1,1 +1,3 @@
-## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
