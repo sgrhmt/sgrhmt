@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
