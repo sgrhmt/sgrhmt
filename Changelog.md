@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
