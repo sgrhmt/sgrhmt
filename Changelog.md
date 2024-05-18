@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
