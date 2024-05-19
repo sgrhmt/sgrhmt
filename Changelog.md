@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
