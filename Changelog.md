@@ -1,1 +1,1 @@
-## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
+## What kind of dinosaur loves to sleep? A stega-snore-us.
