@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
