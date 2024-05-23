@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
