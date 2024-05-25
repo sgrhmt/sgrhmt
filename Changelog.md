@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## Why did the sentence fail the driving test? It never came to a full stop.
