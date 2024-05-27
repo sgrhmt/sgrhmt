@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## How are false teeth like stars? They come out at night!
