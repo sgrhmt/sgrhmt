@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Why was the strawberry sad? Its parents were in a jam.
