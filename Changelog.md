@@ -1,1 +1,1 @@
-## What do you call a snake who builds houses? A boa constructor!
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
