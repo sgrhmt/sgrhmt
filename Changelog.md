@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
