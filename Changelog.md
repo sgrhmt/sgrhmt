@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## No matter how kind you are, German children are kinder.
