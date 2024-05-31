@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
