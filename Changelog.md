@@ -1,1 +1,1 @@
-## ‘Put the cat out’ … ‘I didn’t realize it was on fire
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
