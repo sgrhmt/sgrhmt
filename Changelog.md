@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## Why do fish live in salt water? Because pepper makes them sneeze!
