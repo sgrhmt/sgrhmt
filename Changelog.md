@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
