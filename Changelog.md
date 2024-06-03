@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
