@@ -1,1 +1,1 @@
-## People are shocked to discover I have a police record but I love their greatest hits!
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
