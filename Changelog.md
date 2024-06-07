@@ -1,1 +1,1 @@
-## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
