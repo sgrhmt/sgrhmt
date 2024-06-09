@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## What do you get when you cross a snowman with a vampire? Frostbite.
