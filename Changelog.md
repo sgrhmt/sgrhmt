@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
