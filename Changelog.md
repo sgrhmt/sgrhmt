@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
