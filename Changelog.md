@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## I tried to write a chemistry joke, but could never get a reaction.
