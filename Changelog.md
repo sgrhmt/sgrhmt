@@ -1,1 +1,1 @@
-## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
+## What did the digital clock say to the grandfather clock? Look, no hands!
