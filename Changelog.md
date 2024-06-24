@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
