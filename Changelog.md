@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
