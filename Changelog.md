@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
