@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
