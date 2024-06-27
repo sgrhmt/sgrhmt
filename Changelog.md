@@ -1,1 +1,2 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## What is the best way to carve?
+## Whittle by whittle.
