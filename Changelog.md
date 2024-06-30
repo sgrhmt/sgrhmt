@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
