@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## My boss told me to attach two pieces of wood together... I totally nailed it!
