@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## Whoever invented the knock-knock joke should get a no bell prize.
