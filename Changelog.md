@@ -1,1 +1,1 @@
-## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
+## An apple a day keeps the bullies away. If you throw it hard enough.
