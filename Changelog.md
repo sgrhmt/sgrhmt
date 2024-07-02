@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## A farmer had 297 cows, when he rounded them up, he found he had 300
