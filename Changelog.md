@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## What do you do when your bunny gets wet? You get your hare dryer.
