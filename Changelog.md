@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
