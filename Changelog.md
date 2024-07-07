@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## I’m only familiar with 25 letters in the English language. I don’t know why.
