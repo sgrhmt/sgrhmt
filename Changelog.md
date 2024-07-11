@@ -1,1 +1,1 @@
-## Have you ever seen fruit preserves being made? It's jarring.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
