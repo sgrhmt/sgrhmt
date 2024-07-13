@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## “My Dog has no nose.” “How does he smell?” “Awful”
