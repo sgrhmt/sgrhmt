@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
