@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## I considered building the patio by myself. But I didn't have the stones.
