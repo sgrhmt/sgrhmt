@@ -1,1 +1,1 @@
-## What lies at the bottom of the ocean and twitches? A nervous wreck.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
