@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## I've got a joke about vegetables for you... but it's a bit corny.
