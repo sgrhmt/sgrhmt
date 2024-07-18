@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## Have you heard of the band 1023MB? They haven't got a gig yet.
