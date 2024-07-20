@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## I considered building the patio by myself. But I didn't have the stones.
