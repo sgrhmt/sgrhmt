@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
