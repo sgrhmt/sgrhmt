@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
