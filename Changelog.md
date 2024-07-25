@@ -1,3 +1,3 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
