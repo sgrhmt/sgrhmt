@@ -1,1 +1,3 @@
-## What does an angry pepper do? It gets jalapeño face.
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
