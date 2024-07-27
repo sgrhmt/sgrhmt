@@ -1,3 +1,1 @@
-## I used to work at a stationery store.  But, I didn't feel like I was going anywhere.
-## 
-## So, I got a job at a travel agency.  Now, I know I'll be going places.
+## It's difficult to say what my wife does, she sells sea shells by the sea shore.
