@@ -1,1 +1,3 @@
-## I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
+## I used to work at a stationery store.  But, I didn't feel like I was going anywhere.
+## 
+## So, I got a job at a travel agency.  Now, I know I'll be going places.
