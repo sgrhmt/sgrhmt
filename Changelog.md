@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## How come the stadium got hot after the game? Because all of the fans left.
