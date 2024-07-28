@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## What's black and white and read all over? The newspaper.
