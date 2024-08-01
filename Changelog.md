@@ -1,1 +1,1 @@
-## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
