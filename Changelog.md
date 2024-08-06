@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
