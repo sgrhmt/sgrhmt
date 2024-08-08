@@ -1,1 +1,1 @@
-## Coffee has a tough time at my house, every morning it gets mugged.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
