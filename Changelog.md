@@ -1,1 +1,1 @@
-## I was so proud when I finished the puzzle in six months, when on the side it said three to four years.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
