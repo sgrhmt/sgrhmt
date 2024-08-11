@@ -1,1 +1,3 @@
-## Have you ever seen fruit preserves being made? It's jarring.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
