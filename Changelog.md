@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
