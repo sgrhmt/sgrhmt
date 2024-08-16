@@ -1,1 +1,1 @@
-## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
+## Some people say that comedians who tell one too many light bulb jokes soon burn out, but they don't know watt they are talking about. They're not that bright.
