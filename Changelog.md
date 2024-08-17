@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Never take advice from electrons. They are always negative.
