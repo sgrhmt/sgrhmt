@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## Where did Captain Hook get his hook? From a second hand store.
