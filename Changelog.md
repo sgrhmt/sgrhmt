@@ -1,1 +1,1 @@
-## What kind of music do mummy's like? Rap
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
