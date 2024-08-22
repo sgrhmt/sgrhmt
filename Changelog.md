@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
