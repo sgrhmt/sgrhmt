@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## Where do sheep go to get their hair cut? The baa-baa shop.
