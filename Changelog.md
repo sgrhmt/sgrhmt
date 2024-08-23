@@ -1,1 +1,1 @@
-## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
