@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## What was a more important invention than the first telephone? The second one.
