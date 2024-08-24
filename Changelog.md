@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
