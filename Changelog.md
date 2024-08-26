@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
