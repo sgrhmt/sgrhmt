@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
