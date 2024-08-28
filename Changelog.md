@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
