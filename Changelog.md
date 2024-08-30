@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## What do vegetarian zombies eat? Grrrrrainnnnnssss.
