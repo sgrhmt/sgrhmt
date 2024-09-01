@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
