@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
