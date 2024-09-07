@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## What kind of dinosaur loves to sleep? A stega-snore-us.
