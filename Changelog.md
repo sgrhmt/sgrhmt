@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
