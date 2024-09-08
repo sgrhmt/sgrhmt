@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
