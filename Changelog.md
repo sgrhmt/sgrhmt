@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
