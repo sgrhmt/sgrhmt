@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## What do you do when your bunny gets wet? You get your hare dryer.
