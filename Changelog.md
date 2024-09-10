@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
