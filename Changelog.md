@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## What's a ninja's favorite type of shoes? Sneakers!
