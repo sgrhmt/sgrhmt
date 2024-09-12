@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
