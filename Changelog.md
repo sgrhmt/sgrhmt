@@ -1,1 +1,1 @@
-## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
