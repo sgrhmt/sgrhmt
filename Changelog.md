@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## I thought about going on an all-almond diet. But that's just nuts.
