@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## What time did the man go to the dentist? Tooth hurt-y.
