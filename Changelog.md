@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
