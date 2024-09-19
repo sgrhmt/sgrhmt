@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
