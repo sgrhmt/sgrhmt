@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
