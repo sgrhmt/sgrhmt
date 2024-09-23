@@ -1,1 +1,3 @@
-## which flower is most fierce? Dandelion
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
