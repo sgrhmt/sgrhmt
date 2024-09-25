@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
