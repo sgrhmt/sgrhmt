@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## What did one wall say to the other wall? I'll meet you at the corner!
