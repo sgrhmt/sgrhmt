@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## You can't run through a camp site. You can only ran, because it's past tents.
