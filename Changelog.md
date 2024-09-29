@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
