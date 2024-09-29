@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
