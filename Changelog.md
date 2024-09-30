@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
