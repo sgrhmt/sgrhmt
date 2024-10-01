@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
