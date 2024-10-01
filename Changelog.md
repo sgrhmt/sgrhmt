@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
