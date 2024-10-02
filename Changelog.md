@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
