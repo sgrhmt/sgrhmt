@@ -1,1 +1,1 @@
-## To be Frank, I'd have to change my name.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
