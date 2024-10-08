@@ -1,1 +1,1 @@
-## Every night at 11:11, I make a wish that someone will come fix my broken clock.
+## If I could name myself after any Egyptian god, I'd be Set.
