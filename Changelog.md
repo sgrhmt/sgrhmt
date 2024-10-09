@@ -1,1 +1,2 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
