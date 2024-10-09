@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## Why was ten scared of seven? Because seven ate nine.
