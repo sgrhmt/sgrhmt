@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## A termite walks into a bar and asks “Is the bar tender here?”
