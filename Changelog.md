@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## Why was the big cat disqualified from the race? Because it was a cheetah.
