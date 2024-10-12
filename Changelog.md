@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## Why did the m&m go to school? Because it wanted to be a Smartie!
