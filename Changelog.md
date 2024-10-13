@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## Did you know that ghosts call their true love their ghoul-friend?
