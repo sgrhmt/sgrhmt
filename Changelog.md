@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## What did the grape do when he got stepped on? He let out a little wine.
