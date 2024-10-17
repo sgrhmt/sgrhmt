@@ -1,1 +1,1 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## When is a door not a door? When it's ajar.
