@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
