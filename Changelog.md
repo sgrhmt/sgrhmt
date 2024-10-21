@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## Writing with a broken pencil is pointless.
