@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
