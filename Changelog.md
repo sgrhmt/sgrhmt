@@ -1,1 +1,1 @@
-## What do you call a group of killer whales playing instruments? An Orca-stra.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
