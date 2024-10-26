@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## Why do crabs never give to charity? Because they’re shellfish.
