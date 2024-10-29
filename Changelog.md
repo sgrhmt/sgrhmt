@@ -1,1 +1,1 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
