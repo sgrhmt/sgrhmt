@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
