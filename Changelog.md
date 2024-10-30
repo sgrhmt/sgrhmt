@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
