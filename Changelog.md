@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## What's a ninja's favorite type of shoes? Sneakers!
