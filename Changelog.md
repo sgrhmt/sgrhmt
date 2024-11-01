@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## How do robots eat guacamole? With computer chips.
