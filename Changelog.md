@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
