@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
