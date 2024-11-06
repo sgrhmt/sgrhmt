@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
