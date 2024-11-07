@@ -1,1 +1,2 @@
-## The great thing about stationery shops is they're always in the same place...
+## What's large, grey, and doesn't matter?
+## An irrelephant.
