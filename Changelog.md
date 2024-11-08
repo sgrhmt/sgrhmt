@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## How many South Americans does it take to change a lightbulb? A Brazilian
