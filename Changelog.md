@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## Have you heard about corduroy pillows?  They're making headlines!
