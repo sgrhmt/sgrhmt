@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## People are shocked to discover I have a police record but I love their greatest hits!
