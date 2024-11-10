@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## I tried to write a chemistry joke, but could never get a reaction.
