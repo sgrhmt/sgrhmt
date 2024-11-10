@@ -1,1 +1,1 @@
-## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
