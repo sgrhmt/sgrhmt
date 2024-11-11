@@ -1,1 +1,1 @@
-## People are shocked to discover I have a police record but I love their greatest hits!
+## Yesterday, I accidentally swallowed some food coloring. The doctor says I’m okay, but I feel like I’ve dyed a little inside.
