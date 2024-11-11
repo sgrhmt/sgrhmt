@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
