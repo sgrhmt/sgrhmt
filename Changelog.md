@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
