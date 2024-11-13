@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
