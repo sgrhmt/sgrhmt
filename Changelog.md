@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## Is the pool safe for diving? It deep ends.
