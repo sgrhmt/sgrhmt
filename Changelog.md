@@ -1,1 +1,2 @@
-## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
