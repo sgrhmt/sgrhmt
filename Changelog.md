@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## The urge to sing the Lion King song is just a whim away.
