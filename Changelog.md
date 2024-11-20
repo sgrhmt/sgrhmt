@@ -1,1 +1,1 @@
-## What do you call a group of killer whales playing instruments? An Orca-stra.
+## Why did the kid cross the playground? To get to the other slide.
