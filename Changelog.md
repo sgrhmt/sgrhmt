@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
