@@ -1,1 +1,1 @@
-## Did you know crocodiles could grow up to 15 feet? But most just have 4.
+## Have you heard about corduroy pillows?  They're making headlines!
