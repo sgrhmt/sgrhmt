@@ -1,1 +1,1 @@
-## New atoms frequently lose electrons when they fail to keep an ion them.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
