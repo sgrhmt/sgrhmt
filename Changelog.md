@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## How do you make Lady Gaga cry? Poker face. 
