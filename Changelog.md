@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
