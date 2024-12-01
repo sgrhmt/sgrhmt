@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
