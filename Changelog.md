@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
