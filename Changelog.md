@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
