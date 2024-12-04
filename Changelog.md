@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
