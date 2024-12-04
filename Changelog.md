@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
