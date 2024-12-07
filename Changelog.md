@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## Why was the shirt happy to hang around the tank top? Because it was armless
