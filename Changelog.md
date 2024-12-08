@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## My first time using an elevator was an uplifting experience. The second time let me down.
