@@ -1,1 +1,3 @@
-## I just broke my guitar. It's okay, I won't fret
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
