@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## Why are skeletons so calm? Because nothing gets under their skin.
