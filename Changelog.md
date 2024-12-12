@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## What's orange and sounds like a parrot? A Carrot.
