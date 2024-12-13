@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## What do you call a monkey in a mine field? A babooooom!
