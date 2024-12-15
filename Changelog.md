@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
