@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## How many South Americans does it take to change a lightbulb? A Brazilian
