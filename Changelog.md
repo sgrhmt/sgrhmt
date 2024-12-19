@@ -1,1 +1,3 @@
-## How does Darth Vader like his toast? On the dark side.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
