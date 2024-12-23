@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## Our wedding was so beautiful, even the cake was in tiers.
