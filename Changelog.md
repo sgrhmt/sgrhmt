@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
