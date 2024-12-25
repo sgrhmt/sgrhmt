@@ -1,1 +1,1 @@
-## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
