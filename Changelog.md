@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
