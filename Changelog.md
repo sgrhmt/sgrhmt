@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## What time did the man go to the dentist? Tooth hurt-y.
