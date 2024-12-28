@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
