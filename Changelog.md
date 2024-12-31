@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
