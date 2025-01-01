@@ -1,1 +1,1 @@
-## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
