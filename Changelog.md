@@ -1,1 +1,1 @@
-## The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
