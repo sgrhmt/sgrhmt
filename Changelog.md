@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## Why do choirs keep buckets handy? So they can carry their tune
