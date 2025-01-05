@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## You know that cemetery up the road? People are dying to get in there.
