@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
