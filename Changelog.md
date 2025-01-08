@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## Why was ten scared of seven? Because seven ate nine.
