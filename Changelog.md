@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## Me and my mates are in a band called Duvet. We're a cover band.
