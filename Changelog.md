@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## I tried to write a chemistry joke, but could never get a reaction.
