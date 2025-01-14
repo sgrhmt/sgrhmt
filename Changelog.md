@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
