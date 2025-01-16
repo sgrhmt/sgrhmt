@@ -1,1 +1,5 @@
-## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
+## A panda walks into a bar and says to the bartender “I’ll have a Scotch and . . . . . . . . . . . . . . Coke thank you”. 
+## 
+## “Sure thing” the bartender replies and asks “but what’s with the big pause?” 
+## 
+## The panda holds up his hands and says “I was born with them”
