@@ -1,1 +1,1 @@
-## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
+## Why do pirates not know the alphabet? They always get stuck at "C".
