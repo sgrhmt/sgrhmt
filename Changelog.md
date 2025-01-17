@@ -1,1 +1,1 @@
-## What do you call a fake noodle? An impasta.
+## What do you call two guys hanging out by your window? Kurt & Rod.
