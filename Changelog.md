@@ -1,1 +1,1 @@
-## Whats a penguins favorite relative? Aunt Arctica.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
