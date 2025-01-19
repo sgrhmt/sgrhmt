@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
