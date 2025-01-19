@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
