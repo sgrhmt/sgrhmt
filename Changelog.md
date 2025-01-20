@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## Why did the banana go to the doctor? He was not "peeling" well.
