@@ -1,1 +1,1 @@
-## I wanted to be a tailor but I didn't suit the job
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
