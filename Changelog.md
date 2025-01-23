@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
