@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## What did the Red light say to the Green light? Don't look at me I'm changing!
