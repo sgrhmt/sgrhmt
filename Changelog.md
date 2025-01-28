@@ -1,1 +1,1 @@
-## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
