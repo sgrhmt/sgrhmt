@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
