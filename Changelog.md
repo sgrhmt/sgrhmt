@@ -1,1 +1,2 @@
-## Why did the tree go to the dentist? It needed a root canal.
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
