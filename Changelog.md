@@ -1,1 +1,1 @@
-## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
