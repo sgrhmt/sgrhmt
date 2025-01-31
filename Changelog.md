@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
