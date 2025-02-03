@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
