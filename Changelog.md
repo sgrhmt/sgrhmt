@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
