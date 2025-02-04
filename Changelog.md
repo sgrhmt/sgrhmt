@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
