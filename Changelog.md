@@ -1,1 +1,1 @@
-## I always wanted to look into why I procrastinate, but I keep putting it off. 
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
