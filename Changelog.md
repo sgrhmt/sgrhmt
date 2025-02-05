@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## What concert costs only 45 cents? 50 cent featuring Nickelback.
