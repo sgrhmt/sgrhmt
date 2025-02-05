@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
