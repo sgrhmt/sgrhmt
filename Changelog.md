@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
