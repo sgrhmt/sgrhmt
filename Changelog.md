@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## How come a man driving a train got struck by lightning? He was a good conductor.
