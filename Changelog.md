@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## Why was the robot angry? Because someone kept pressing his buttons!
