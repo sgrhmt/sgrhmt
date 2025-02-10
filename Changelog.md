@@ -1,1 +1,1 @@
-## What do you call a pile of cats?  A Meowtain.
+## Geology rocks, but Geography is where it's at!
