@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## Why do pirates not know the alphabet? They always get stuck at "C".
