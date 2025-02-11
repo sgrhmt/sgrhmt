@@ -1,1 +1,1 @@
-## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
