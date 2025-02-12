@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
