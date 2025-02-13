@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
