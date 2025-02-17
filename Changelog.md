@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
