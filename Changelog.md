@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## Why do we tell actors to “break a leg?” Because every play has a cast.
