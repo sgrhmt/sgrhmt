@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## I've got a joke about vegetables for you... but it's a bit corny.
