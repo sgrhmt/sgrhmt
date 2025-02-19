@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## What did the sea say to the sand? "We have to stop meeting like this."
