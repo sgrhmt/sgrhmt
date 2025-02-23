@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
