@@ -1,1 +1,1 @@
-## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
