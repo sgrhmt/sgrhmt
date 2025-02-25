@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## Why didn’t the skeleton cross the road? Because he had no guts.
