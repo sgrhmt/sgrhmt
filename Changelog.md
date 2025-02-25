@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## I just got fired from a florist, apparently I took too many leaves.
