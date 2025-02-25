@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
