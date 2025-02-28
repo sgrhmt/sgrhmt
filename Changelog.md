@@ -1,1 +1,1 @@
-## To the person who stole my anti-depressant pills: I hope you're happy now.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
