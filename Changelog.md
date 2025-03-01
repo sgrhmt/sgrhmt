@@ -1,1 +1,1 @@
-## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
