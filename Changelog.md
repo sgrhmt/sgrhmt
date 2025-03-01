@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
