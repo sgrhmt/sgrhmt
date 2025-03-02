@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
