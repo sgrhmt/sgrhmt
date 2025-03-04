@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## How do robots eat guacamole? With computer chips.
