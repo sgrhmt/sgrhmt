@@ -1,1 +1,1 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
