@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## I was wondering why the frisbee was getting bigger, then it hit me.
