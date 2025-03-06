@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
