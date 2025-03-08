@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
