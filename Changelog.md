@@ -1,1 +1,1 @@
-## What do you call a pig with three eyes? Piiig
+## How do you find Will Smith in the snow?  Look for fresh prints.
