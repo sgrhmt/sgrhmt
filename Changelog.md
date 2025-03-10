@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## What's brown and sticky? A stick.
