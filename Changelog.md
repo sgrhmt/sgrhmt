@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
