@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
