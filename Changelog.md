@@ -1,1 +1,1 @@
-## A girl once asked me what my heart desired, apparently blood, oxygen and neural messages were all wrong answers
+## I went to the doctor today and he told me I had type A blood but it was a type O.
