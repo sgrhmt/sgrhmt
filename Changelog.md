@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
