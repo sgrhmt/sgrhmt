@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
