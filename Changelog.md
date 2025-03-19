@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## When does a joke become a dad joke? When it becomes apparent.
