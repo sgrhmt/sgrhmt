@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## What does a pirate pay for his corn? A buccaneer!
