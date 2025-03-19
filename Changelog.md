@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## Why was the strawberry sad? Its parents were in a jam.
