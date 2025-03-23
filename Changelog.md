@@ -1,1 +1,1 @@
-## Why does Han Solo like gum? It's chewy!
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
