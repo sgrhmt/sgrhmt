@@ -1,1 +1,1 @@
-## Why did the cookie cry? It was feeling crumby.
+## I've got a joke about vegetables for you... but it's a bit corny.
