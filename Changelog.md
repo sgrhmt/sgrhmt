@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
