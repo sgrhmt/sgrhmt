@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## Why did the man put his money in the freezer? He wanted cold hard cash!
