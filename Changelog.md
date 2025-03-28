@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
