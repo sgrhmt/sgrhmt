@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
