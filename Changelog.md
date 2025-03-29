@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
