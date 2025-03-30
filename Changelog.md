@@ -1,1 +1,1 @@
-## A girl once asked me what my heart desired, apparently blood, oxygen and neural messages were all wrong answers
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
