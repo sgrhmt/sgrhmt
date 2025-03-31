@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## My dentist is the best, he even has a little plaque!
