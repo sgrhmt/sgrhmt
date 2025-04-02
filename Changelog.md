@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## Have you heard about corduroy pillows?  They're making headlines!
