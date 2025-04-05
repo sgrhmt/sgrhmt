@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
