@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
