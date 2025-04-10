@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
