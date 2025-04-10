@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
