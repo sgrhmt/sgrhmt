@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## An apple a day keeps the bullies away. If you throw it hard enough.
