@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
