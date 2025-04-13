@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
