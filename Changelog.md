@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## Past, present, and future walked into a bar.... It was tense.
