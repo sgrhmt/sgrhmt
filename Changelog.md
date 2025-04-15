@@ -1,1 +1,1 @@
-## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
