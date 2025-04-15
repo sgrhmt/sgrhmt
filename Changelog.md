@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
