@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
