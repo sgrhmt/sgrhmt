@@ -1,1 +1,1 @@
-## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
+## Why do bees hum? Because they don't know the words.
