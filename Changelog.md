@@ -1,1 +1,1 @@
-## I met this girl on a dating site and, I don't know, we just clicked.
+## I considered building the patio by myself. But I didn't have the stones.
