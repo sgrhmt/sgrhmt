@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
