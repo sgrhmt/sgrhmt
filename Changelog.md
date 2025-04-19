@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## Don't trust atoms. They make up everything.
