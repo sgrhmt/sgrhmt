@@ -1,1 +1,1 @@
-## I think circles are pointless.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
