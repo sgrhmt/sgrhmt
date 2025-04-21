@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
