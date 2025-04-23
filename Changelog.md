@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## Where did you learn to make ice cream? Sunday school.
