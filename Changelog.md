@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
