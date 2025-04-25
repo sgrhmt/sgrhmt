@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Where does Fonzie like to go for lunch? Chick-Fil-Eyyyyyyyy.
