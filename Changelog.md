@@ -1,1 +1,1 @@
-## What do you call an eagle who can play the piano? Talonted!
+## Why do bears have hairy coats? Fur protection.
