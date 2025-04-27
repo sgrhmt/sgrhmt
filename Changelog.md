@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## Why did the chicken get a penalty? For fowl play.
