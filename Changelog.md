@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
