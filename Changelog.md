@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
