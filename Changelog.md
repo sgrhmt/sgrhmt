@@ -1,1 +1,1 @@
-## I fear for the calendar, its days are numbered.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
