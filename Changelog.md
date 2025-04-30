@@ -1,1 +1,1 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## The rotation of earth really makes my day.
