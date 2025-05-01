@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
