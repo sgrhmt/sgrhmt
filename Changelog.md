@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
