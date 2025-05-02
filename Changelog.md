@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## What do you call a dad that has fallen through the ice? A Popsicle.
