@@ -1,1 +1,1 @@
-## Yesterday, I accidentally swallowed some food coloring. The doctor says I’m okay, but I feel like I’ve dyed a little inside.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
