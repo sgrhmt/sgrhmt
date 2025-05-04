@@ -1,1 +1,2 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
