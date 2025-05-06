@@ -1,1 +1,2 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## I finally bought the limited edition Thesaurus that I've always wanted. When I opened it, all the pages were blank.
+## I have no words to describe how angry I am.
