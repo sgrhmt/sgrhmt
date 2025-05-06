@@ -1,1 +1,1 @@
-## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
