@@ -1,1 +1,3 @@
-## Did you hear about the guy who invented Lifesavers? They say he made a mint.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
