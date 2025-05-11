@@ -1,1 +1,3 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
