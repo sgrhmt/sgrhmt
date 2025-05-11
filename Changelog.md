@@ -1,3 +1,7 @@
-## What is the difference between ignorance and apathy?
+## Wife: Honey I’m pregnant.
 ## 
-## I don't know and I don't care.
+## Me: Well…. what do we do now?
+## 
+## Wife: Well, I guess we should go to a baby doctor.
+## 
+## Me: Hm.. I think I’d be a lot more comfortable going to an adult doctor.
