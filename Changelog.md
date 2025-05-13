@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Where do hamburgers go to dance? The meat-ball.
