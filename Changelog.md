@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## Camping is intense.
