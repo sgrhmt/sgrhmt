@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## What is a vampire's favorite fruit? A blood orange.
