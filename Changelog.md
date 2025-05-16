@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## The rotation of earth really makes my day.
