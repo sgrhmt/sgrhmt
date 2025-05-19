@@ -1,1 +1,1 @@
-## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
