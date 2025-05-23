@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## How do you find Will Smith in the snow?  Look for fresh prints.
