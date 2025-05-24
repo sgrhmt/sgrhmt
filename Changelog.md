@@ -1,1 +1,1 @@
-## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
+## I went to a book store and asked the saleswoman where the Self Help section was, she said if she told me it would defeat the purpose.
