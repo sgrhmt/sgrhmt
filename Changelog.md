@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
