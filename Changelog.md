@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
