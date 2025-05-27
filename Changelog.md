@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
