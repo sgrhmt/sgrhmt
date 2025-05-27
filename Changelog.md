@@ -1,1 +1,1 @@
-## Camping is intense.
+## Why did the kid cross the playground? To get to the other slide.
