@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
