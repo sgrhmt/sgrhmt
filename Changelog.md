@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
