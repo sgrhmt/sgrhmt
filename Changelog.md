@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
