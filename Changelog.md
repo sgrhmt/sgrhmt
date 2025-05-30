@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
