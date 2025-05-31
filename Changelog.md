@@ -1,1 +1,1 @@
-## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
