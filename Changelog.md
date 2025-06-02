@@ -1,1 +1,1 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## An apple a day keeps the bullies away. If you throw it hard enough.
