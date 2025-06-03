@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## Camping is intense.
