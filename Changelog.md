@@ -1,1 +1,1 @@
-## What do you call a girl between two posts? Annette.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
