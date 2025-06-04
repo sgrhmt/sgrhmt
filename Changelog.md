@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## What do you get when you cross a bee and a sheep? A bah-humbug.
