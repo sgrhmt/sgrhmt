@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## What's the best thing about elevator jokes? They work on so many levels.
