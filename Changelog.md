@@ -1,1 +1,1 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
