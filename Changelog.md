@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Coffee has a tough time at my house, every morning it gets mugged.
