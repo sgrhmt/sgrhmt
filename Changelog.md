@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## Why are graveyards so noisy? Because of all the coffin.
