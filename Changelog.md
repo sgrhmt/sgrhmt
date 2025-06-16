@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## I met this girl on a dating site and, I don't know, we just clicked.
