@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
