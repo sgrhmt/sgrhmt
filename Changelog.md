@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
