@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
