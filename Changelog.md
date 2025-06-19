@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## You can't trust a ladder. It will always let you down
