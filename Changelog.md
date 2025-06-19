@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## I was in an 80's band called the prevention. We were better than the cure.
