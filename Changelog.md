@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
