@@ -1,1 +1,1 @@
-## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
