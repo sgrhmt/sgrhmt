@@ -1,1 +1,1 @@
-## Where do bees go to the bathroom?  The BP station.
+## How can you tell a vampire has a cold? They start coffin.
