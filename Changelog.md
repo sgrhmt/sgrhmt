@@ -1,1 +1,1 @@
-## Have you heard about the owl sanctuary job opening? It’s all night shifts but they’re all a hoot over there.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
