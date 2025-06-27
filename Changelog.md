@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## How does Darth Vader like his toast? On the dark side.
