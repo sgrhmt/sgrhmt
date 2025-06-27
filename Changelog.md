@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
