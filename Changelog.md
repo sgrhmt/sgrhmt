@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
