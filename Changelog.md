@@ -1,1 +1,3 @@
-## I am so good at sleeping I can do it with my eyes closed!
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
