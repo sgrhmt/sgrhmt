@@ -1,1 +1,1 @@
-## What do you get when you cross a bee and a sheep? A bah-humbug.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
