@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
