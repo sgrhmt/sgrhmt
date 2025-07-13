@@ -1,1 +1,1 @@
-## Did you know Albert Einstein was a real person? All this time, I thought he was just a theoretical physicist!
+## What do you call a duck that gets all A's? A wise quacker.
