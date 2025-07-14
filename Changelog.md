@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## What did the left eye say to the right eye? Between us, something smells!
