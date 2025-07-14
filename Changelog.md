@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## I’m only familiar with 25 letters in the English language. I don’t know why.
