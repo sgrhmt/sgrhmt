@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
