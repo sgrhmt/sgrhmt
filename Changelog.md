@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
