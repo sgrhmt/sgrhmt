@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## Why do bees have sticky hair? Because they use honey combs!
