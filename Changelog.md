@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## Why was it called the dark ages? Because of all the knights. 
