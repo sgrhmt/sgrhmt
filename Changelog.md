@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
