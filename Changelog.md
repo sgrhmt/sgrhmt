@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## It doesn't matter how much you push the envelope. It will still be stationary.
