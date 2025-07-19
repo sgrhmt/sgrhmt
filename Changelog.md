@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
