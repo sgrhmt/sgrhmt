@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
