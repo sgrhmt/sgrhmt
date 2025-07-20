@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## An apple a day keeps the bullies away. If you throw it hard enough.
