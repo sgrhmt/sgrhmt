@@ -1,1 +1,1 @@
-## How does a penguin build it’s house? Igloos it together.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
