@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## Why did the melons plan a big wedding? Because they cantaloupe!
