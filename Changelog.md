@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
