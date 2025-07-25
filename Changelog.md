@@ -1,1 +1,1 @@
-## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
