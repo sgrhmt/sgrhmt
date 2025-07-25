@@ -1,1 +1,2 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
+## "Pop," goes the weasel.
