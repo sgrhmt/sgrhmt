@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## What does an angry pepper do? It gets jalapeño face.
