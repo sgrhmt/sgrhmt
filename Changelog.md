@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## Did you know that ghosts call their true love their ghoul-friend?
