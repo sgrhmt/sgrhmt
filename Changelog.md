@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## Why do ducks make great detectives? They always quack the case.
