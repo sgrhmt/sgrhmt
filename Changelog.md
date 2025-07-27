@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
