@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## A Skeleton walked into a bar he said I need a beer and a mop
