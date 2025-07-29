@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
