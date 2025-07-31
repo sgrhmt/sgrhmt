@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
