@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## There's not really any training for garbagemen. They just pick things up as they go.
