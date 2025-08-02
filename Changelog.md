@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## What do you call a cow with no legs? Ground beef.
