@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## I couldn't get a reservation at the library. They were completely booked.
