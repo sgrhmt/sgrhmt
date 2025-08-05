@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## The best time on a clock is 6:30--hands down.
