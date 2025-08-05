@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## Geology rocks, but Geography is where it's at!
