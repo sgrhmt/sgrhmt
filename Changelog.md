@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## What kind of pants do ghosts wear? Boo jeans.
