@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## What is a vampire's favorite fruit? A blood orange.
