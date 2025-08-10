@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
