@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
