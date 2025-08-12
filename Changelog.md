@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## What do you do when your bunny gets wet? You get your hare dryer.
