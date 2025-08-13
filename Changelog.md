@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
