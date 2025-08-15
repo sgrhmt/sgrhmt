@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
