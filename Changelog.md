@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
