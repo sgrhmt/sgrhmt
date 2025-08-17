@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## Why didn’t the orange win the race? It ran out of juice.
