@@ -1,1 +1,1 @@
-## How many apples grow on a tree? All of them!
+## A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
