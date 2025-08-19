@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
