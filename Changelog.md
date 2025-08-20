@@ -1,1 +1,1 @@
-## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
