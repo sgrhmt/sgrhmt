@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## What do you call two guys hanging out by your window? Kurt & Rod.
