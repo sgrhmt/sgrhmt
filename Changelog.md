@@ -1,1 +1,2 @@
-## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
