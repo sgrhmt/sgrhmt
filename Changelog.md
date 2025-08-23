@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
