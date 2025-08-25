@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## Our wedding was so beautiful, even the cake was in tiers.
