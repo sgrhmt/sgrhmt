@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## How do the trees get on the internet? They log on.
