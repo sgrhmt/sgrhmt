@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
