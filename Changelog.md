@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
