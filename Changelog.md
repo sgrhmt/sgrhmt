@@ -1,1 +1,1 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## People are shocked to discover I have a police record but I love their greatest hits!
