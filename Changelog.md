@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
