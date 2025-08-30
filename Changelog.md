@@ -1,1 +1,2 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## What do you do when you see a space man?
+## Park your car, man.
