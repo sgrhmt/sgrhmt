@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## What's the best thing about elevator jokes? They work on so many levels.
