@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## Geology rocks, but Geography is where it's at!
