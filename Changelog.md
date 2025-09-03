@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## What's blue and not very heavy?  Light blue.
