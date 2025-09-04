@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## What did the mountain climber name his son? Cliff.
