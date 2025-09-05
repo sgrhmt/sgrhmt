@@ -1,1 +1,1 @@
-## My first time using an elevator was an uplifting experience. The second time let me down.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
