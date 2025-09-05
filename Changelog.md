@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## Dad, can you put my shoes on? I don't think they'll fit me.
