@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
