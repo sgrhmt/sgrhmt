@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
