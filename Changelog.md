@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
