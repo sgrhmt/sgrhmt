@@ -1,1 +1,1 @@
-## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
+## Did you hear about the runner who was criticized? He just took it in stride
