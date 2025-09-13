@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## Who is the coolest Doctor in the hospital? The hip Doctor!
