@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
