@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## How do you get two whales in a car? Start in England and drive West.
