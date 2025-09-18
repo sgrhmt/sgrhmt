@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## How come a man driving a train got struck by lightning? He was a good conductor.
