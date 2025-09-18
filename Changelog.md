@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Pie is $2.50 in Jamaica and $3.00 in The Bahamas. These are the pie-rates of the Caribbean.
