@@ -1,1 +1,1 @@
-## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
+## My boss told me to attach two pieces of wood together... I totally nailed it!
