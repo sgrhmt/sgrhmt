@@ -1,1 +1,1 @@
-## Why did the banana go to the doctor? He was not "peeling" well.
+## The urge to sing the Lion King song is just a whim away.
