@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
