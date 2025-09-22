@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
