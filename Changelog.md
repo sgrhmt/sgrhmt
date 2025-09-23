@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## What did one snowman say to the other snow man? Do you smell carrot?
