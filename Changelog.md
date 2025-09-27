@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## Who did the wizard marry? His ghoul-friend
