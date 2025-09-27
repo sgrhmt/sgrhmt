@@ -1,1 +1,1 @@
-## What do birds give out on Halloween? Tweets.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
