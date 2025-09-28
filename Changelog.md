@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## Where do rabbits go after they get married? On a bunny-moon.
