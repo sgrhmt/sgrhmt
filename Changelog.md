@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## I've got a joke about vegetables for you... but it's a bit corny.
