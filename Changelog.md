@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
