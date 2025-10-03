@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
