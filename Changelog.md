@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
