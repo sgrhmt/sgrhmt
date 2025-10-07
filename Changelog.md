@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
