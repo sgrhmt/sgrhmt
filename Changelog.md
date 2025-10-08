@@ -1,1 +1,2 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
+## I know he means well.
