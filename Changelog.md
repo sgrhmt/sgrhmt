@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## I asked a frenchman if he played video games. He said "Wii"
