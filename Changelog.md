@@ -1,1 +1,2 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
