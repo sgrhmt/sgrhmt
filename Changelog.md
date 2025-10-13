@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
