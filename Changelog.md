@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## How can you tell a vampire has a cold? They start coffin.
