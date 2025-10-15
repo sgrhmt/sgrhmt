@@ -1,1 +1,2 @@
-## How can you tell a vampire has a cold? They start coffin.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
