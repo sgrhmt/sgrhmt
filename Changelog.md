@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## People are making apocalypse jokes like there’s no tomorrow.
