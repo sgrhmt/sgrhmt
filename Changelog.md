@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
