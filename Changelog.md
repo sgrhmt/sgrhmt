@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
