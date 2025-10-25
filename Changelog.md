@@ -1,1 +1,3 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
