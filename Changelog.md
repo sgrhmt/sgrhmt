@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## What did the ocean say to the shore? Nothing, it just waved.
