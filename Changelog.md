@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## Why are skeletons so calm? Because nothing gets under their skin.
