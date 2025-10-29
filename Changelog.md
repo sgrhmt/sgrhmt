@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
