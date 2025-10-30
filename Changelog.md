@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
