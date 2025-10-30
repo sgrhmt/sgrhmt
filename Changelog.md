@@ -1,1 +1,2 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
