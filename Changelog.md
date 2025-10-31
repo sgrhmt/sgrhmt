@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
