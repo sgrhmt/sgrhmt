@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
