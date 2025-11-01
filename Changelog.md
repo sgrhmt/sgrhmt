@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## What did the beaver say to the tree? It's been nice gnawing you.
