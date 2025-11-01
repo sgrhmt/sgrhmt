@@ -1,1 +1,1 @@
-## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
