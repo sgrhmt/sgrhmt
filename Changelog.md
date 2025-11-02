@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## What did Yoda say when he saw himself in 4K? "HDMI"
