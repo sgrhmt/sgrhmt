@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## Why did the knife dress up in a suit? Because it wanted to look sharp
