@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## Whoever invented the knock-knock joke should get a no bell prize.
