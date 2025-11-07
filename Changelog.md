@@ -1,1 +1,1 @@
-## How do you make a water bed more bouncy. You use Spring Water
+## Why did the belt go to prison? He held up a pair of pants!
