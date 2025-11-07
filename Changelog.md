@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
