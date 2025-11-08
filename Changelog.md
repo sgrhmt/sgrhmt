@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## Where did Captain Hook get his hook? From a second hand store.
