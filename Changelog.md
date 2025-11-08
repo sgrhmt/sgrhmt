@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## It's difficult to say what my wife does, she sells sea shells by the sea shore.
