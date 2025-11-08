@@ -1,1 +1,1 @@
-## It's difficult to say what my wife does, she sells sea shells by the sea shore.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
