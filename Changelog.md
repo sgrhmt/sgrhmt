@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
