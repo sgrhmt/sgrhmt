@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## What did the sea say to the sand? "We have to stop meeting like this."
