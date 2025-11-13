@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
