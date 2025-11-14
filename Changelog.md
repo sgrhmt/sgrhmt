@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
