@@ -1,1 +1,1 @@
-## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
