@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
