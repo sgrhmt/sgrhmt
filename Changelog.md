@@ -1,1 +1,1 @@
-## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
+## What do you get when you cross a chicken with a skunk? A fowl smell!
