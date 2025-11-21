@@ -1,1 +1,1 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
