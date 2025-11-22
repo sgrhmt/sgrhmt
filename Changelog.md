@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## Geology rocks, but Geography is where it's at!
