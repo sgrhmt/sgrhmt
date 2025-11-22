@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## My cat was just sick on the carpet, I don’t think it’s feline well.
