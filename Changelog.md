@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## Why was the strawberry sad? Its parents were in a jam.
