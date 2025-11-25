@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
