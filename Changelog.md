@@ -1,1 +1,1 @@
-## Where do bees go to the bathroom?  The BP station.
+## What's blue and not very heavy?  Light blue.
