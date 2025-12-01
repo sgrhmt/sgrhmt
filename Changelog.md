@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## A termite walks into a bar and asks “Is the bar tender here?”
