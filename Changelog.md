@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
