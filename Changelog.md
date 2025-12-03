@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## What do you give a sick lemon? Lemonaid.
