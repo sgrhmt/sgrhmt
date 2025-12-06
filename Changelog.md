@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
