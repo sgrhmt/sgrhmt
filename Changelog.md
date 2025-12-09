@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
