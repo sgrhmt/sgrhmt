@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
