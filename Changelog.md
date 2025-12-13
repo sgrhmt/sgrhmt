@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
