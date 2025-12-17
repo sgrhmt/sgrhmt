@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
