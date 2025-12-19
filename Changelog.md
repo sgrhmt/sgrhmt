@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
