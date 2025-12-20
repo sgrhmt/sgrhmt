@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
