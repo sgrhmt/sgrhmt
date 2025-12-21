@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
