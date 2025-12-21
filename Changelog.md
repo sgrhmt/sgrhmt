@@ -1,1 +1,1 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## Milk is also the fastest liquid on earth – its pasteurized before you even see it
