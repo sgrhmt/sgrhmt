@@ -1,1 +1,1 @@
-## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
