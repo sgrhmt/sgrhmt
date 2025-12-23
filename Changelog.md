@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
