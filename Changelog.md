@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## Why did the barber win the race? He took a short cut.
