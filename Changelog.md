@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
