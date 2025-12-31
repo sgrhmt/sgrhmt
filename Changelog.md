@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## "I'll call you later." Don't call me later, call me Dad.
