@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
