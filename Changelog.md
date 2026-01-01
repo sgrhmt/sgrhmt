@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
