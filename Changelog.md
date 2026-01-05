@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
