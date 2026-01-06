@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## Shout out to my grandma, that's the only way she can hear.
