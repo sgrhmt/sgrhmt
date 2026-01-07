@@ -1,1 +1,1 @@
-## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
+## I made a belt out of watches once... It was a waist of time.
