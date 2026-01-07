@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
