@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
