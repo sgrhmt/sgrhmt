@@ -1,1 +1,1 @@
-## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
