@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
