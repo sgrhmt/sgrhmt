@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## What happens to a frog's car when it breaks down? It gets toad.
