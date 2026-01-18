@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## How does a French skeleton say hello? Bone-jour.
