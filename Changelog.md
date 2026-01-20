@@ -1,1 +1,1 @@
-## What do you call a fish wearing a bowtie? Sofishticated.
+## Don't trust atoms. They make up everything.
