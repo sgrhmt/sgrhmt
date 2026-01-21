@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## My first time using an elevator was an uplifting experience. The second time let me down.
