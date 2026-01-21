@@ -1,1 +1,1 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## Have you heard the story about the magic tractor? It drove down the road and turned into a field.
