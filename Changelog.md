@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
