@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
