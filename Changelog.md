@@ -1,1 +1,1 @@
-## Dad I’m hungry’ … ‘Hi hungry I’m dad
+## Remember, the best angle to approach a problem from is the "try" angle.
