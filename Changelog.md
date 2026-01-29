@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
