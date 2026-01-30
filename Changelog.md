@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## I’ve just been reading a book about anti-gravity, it’s impossible to put down!
