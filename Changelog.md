@@ -1,1 +1,1 @@
-## Dad, can you put my shoes on? I don't think they'll fit me.
+## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
