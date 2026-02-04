@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
