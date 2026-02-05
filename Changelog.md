@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## You know that cemetery up the road? People are dying to get in there.
