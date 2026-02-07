@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## How come the stadium got hot after the game? Because all of the fans left.
