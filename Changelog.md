@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
