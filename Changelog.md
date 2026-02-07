@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## I'll tell you what often gets over looked... garden fences.
