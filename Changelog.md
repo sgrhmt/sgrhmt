@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## What did the left eye say to the right eye? Between us, something smells!
