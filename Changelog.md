@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## "I'm sorry." "Hi sorry, I'm dad"
