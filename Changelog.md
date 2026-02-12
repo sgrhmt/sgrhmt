@@ -1,1 +1,1 @@
-## Want to hear my pizza joke? Never mind, it's too cheesy.
+## What did one plate say to the other plate? Dinner is on me!
