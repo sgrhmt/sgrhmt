@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
