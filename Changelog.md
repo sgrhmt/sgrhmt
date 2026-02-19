@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
