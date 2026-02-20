@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
