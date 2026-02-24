@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
