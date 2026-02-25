@@ -1,1 +1,1 @@
-## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
+## Dad, can you put my shoes on? I don't think they'll fit me.
