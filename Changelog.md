@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
