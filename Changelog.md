@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## How can you tell a vampire has a cold? They start coffin.
