@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
