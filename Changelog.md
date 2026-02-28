@@ -1,1 +1,1 @@
-## Did you hear about the guy who invented Lifesavers? They say he made a mint.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
