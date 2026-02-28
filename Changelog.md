@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## I have kleptomania, but when it gets bad, I take something for it.
