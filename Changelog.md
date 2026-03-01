@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
