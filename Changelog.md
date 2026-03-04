@@ -1,1 +1,1 @@
-## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
