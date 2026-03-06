@@ -1,1 +1,1 @@
-## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
+## Mountains aren't just funny, they are hill areas
