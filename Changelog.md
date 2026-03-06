@@ -1,1 +1,1 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
