@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
