@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## Why do pirates not know the alphabet? They always get stuck at "C".
