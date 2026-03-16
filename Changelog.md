@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## Where did you learn to make ice cream? Sunday school.
