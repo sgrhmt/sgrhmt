@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
