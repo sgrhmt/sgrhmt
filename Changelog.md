@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
