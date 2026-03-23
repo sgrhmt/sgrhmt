@@ -1,1 +1,1 @@
-## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
