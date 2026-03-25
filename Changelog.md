@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## What do you call a dictionary on drugs? High definition.
