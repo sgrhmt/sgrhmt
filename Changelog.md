@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
