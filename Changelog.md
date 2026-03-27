@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## Some people eat light bulbs. They say it's a nice light snack.
