@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## Why do fish live in salt water? Because pepper makes them sneeze!
