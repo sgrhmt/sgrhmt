@@ -1,1 +1,1 @@
-## When you have a bladder infection, urine trouble.
+## How come the stadium got hot after the game? Because all of the fans left.
