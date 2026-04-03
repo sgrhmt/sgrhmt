@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
