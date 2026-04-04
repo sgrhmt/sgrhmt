@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## Two silk worms had a race. They ended up in a tie.
