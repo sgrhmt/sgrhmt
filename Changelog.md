@@ -1,1 +1,1 @@
-## A Skeleton walked into a bar he said I need a beer and a mop
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
