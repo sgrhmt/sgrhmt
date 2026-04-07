@@ -1,1 +1,1 @@
-## What do I look like? A JOKE MACHINE!?
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
