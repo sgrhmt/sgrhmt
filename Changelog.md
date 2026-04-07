@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
