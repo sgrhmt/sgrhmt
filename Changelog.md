@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
