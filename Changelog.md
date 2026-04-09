@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## What do you call a cow with no legs? Ground beef.
