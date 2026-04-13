@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## What do you call a pig that knows karate? A pork chop!
