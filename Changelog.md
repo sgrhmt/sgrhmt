@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## Two silk worms had a race. They ended up in a tie.
