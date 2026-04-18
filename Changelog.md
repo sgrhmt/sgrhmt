@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## How do the trees get on the internet? They log on.
