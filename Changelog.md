@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
