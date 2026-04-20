@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## Breaking news! Energizer Bunny arrested – charged with battery.
