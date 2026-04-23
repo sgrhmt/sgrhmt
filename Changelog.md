@@ -1,1 +1,1 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
