@@ -1,1 +1,1 @@
-## I dreamed about drowning in an ocean made out of orange soda last night. It took me a while to work out it was just a Fanta sea.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
