@@ -1,1 +1,2 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
