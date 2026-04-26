@@ -1,1 +1,2 @@
-## I used to be addicted to soap, but I'm clean now.
+## What is red and smells like blue paint?
+## Red paint!
