@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Toasters were the first form of pop-up notifications.
