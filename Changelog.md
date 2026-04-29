@@ -1,1 +1,1 @@
-## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
