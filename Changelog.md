@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## "I'll call you later." Don't call me later, call me Dad.
