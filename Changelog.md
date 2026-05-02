@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## Bad at golf? Join the club.
