@@ -1,1 +1,1 @@
-## People are shocked to discover I have a police record but I love their greatest hits!
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
