@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## How do you teach a kid to climb stairs? There is a step by step guide.
