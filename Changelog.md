@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## I've just written a song about a tortilla. Well, it is more of a rap really.
