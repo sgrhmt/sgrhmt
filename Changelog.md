@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
