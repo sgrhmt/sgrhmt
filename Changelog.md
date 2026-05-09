@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## How come the stadium got hot after the game? Because all of the fans left.
