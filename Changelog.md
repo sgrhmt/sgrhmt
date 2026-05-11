@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
