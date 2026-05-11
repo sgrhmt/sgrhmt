@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## I considered building the patio by myself. But I didn't have the stones.
