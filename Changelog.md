@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## Some people eat light bulbs. They say it's a nice light snack.
