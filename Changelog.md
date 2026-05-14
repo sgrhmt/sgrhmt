@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
