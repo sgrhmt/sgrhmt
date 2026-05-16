@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## Leather is great for sneaking around because it's made of hide.
