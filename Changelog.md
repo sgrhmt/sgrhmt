@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## The best time on a clock is 6:30--hands down.
