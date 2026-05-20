@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## I boiled a funny bone last night and had a laughing stock
