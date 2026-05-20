@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
