@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## I invented a new word! Plagiarism!
