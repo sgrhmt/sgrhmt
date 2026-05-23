@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## What do you call your friend who stands in a hole? Phil.
