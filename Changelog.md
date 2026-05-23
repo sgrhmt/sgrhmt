@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## How do robots eat guacamole? With computer chips.
