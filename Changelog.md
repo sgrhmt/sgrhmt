@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## A termite walks into a bar and asks “Is the bar tender here?”
