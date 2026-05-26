@@ -1,1 +1,1 @@
-## I used to work for an origami company but they folded.
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
