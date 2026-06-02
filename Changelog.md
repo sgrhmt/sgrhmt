@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
