@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
