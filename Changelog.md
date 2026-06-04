@@ -1,1 +1,1 @@
-## My wife said I was immature. So I told her to get out of my fort.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
