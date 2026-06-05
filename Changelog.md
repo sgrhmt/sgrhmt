@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## What do you call a beehive without the b's? An eehive.
