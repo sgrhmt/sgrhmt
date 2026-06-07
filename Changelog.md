@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
