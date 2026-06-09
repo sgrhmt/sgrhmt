@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
