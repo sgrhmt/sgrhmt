@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Some people eat light bulbs. They say it's a nice light snack.
