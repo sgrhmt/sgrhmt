@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## Two guys walked into a bar, the third one ducked.
