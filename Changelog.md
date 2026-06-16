@@ -1,1 +1,1 @@
-## We all know where the Big Apple is but does anyone know where the Minneapolis?
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
