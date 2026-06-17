@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Why do bees have sticky hair? Because they use honey combs!
