@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## How come the stadium got hot after the game? Because all of the fans left.
