@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## What did the digital clock say to the grandfather clock? Look, no hands!
