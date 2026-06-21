@@ -1,1 +1,1 @@
-## We all know where the Big Apple is but does anyone know where the Minneapolis?
+## How come the stadium got hot after the game? Because all of the fans left.
