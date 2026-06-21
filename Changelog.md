@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
