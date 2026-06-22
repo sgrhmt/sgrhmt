@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## I tried to write a chemistry joke, but could never get a reaction.
