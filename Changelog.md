@@ -1,1 +1,1 @@
-## How many apples grow on a tree? All of them!
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
