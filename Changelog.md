@@ -1,1 +1,1 @@
-## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
+## How come a man driving a train got struck by lightning? He was a good conductor.
