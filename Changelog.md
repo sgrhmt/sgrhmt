@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## Mountains aren't just funny, they are hill areas
