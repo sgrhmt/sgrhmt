@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
