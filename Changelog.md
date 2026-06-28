@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## I couldn't get a reservation at the library. They were completely booked.
