@@ -1,1 +1,1 @@
-## what happens when you cross a sheep with a kangaroo ? A woolly jumper!
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
