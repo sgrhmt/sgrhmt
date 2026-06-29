@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## what happens when you cross a sheep with a kangaroo ? A woolly jumper!
