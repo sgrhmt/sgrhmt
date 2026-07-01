@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## What do birds give out on Halloween? Tweets.
