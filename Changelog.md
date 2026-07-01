@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## What do prisoners use to call each other? Cell phones.
