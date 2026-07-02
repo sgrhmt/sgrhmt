@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## What's blue and not very heavy?  Light blue.
