@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## What's orange and sounds like a parrot? A Carrot.
