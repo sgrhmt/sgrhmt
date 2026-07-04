@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-## 
-## They can't control their pupils.
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
