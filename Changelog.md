@@ -1,1 +1,3 @@
-## What is a tornado's favorite game to play? Twister!
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
