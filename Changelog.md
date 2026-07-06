@@ -1,1 +1,1 @@
-## What do you call a girl between two posts? Annette.
+## If two vegans are having an argument, is it still considered beef?
