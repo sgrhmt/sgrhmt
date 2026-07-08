@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## How can you tell a vampire has a cold? They start coffin.
