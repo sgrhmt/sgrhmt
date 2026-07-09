@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## What does a clock do when it's hungry? It goes back four seconds!
