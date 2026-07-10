@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## A farmer had 297 cows, when he rounded them up, he found he had 300
