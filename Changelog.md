@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
