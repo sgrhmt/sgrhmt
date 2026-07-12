@@ -1,1 +1,1 @@
-## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
+## How do you teach a kid to climb stairs? There is a step by step guide.
