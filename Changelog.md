@@ -1,1 +1,1 @@
-## My sister bet me $15 that I couldn't build a car out of spaghetti. You should have seen the look on her face as I drove pasta.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
