@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## Have you heard about corduroy pillows?  They're making headlines!
