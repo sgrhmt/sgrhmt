@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## The rotation of earth really makes my day.
