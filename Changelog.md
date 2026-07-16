@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
