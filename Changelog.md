@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
