@@ -1,1 +1,1 @@
-## This is my step ladder. I never knew my real ladder.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
