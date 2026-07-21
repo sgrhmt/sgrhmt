@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## I've got a joke about vegetables for you... but it's a bit corny.
