@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
