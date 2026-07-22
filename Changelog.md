@@ -1,1 +1,1 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## Why do ducks make great detectives? They always quack the case.
