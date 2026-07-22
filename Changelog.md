@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
