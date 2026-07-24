@@ -1,1 +1,1 @@
-## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
