@@ -1,1 +1,2 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
