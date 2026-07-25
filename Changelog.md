@@ -1,1 +1,1 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
