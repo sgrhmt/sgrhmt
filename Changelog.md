@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## I considered building the patio by myself. But I didn't have the stones.
