@@ -1,1 +1,1 @@
-## What cheese can never be yours? Nacho cheese.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
