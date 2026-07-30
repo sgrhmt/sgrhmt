@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
