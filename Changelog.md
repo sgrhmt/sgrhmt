@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## I asked a frenchman if he played video games. He said "Wii"
