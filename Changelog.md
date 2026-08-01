@@ -1,1 +1,1 @@
-## What lies at the bottom of the ocean and twitches? A nervous wreck.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
