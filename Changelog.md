@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
