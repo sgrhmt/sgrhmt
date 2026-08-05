@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
