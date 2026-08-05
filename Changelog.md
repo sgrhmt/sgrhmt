@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
