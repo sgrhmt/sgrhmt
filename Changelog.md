@@ -1,1 +1,1 @@
-## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
+## This furniture store keeps emailing me, all I wanted was one night stand!
