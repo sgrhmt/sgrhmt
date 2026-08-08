@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## No matter how kind you are, German children are kinder.
