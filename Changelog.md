@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
