@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## What did the left eye say to the right eye? Between us, something smells!
