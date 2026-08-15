@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## I’m on a whiskey diet. I’ve lost three days already.
