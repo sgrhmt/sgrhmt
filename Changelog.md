@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## What did the sea say to the sand? "We have to stop meeting like this."
