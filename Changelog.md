@@ -1,1 +1,1 @@
-## What did the sea say to the sand? "We have to stop meeting like this."
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
