@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
