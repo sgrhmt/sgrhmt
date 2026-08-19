@@ -1,1 +1,1 @@
-## I hate perforated lines, they're tearable.
+## This is my step ladder. I never knew my real ladder.
