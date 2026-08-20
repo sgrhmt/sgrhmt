@@ -1,1 +1,2 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
