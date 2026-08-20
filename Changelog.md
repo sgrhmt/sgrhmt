@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## What do you get when you cross a rabbit with a water hose? Hare spray.
