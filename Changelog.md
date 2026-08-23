@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## "Dad, do you think it's going to snow this winter?" "I dont know, its all up in the air"
