@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
