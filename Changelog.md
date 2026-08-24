@@ -1,1 +1,1 @@
-## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
