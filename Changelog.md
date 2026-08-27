@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## How do you steal a coat? You jacket.
