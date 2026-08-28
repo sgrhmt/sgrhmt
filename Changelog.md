@@ -1,1 +1,1 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## What did one wall say to the other wall? I'll meet you at the corner!
