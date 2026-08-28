@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
