@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
