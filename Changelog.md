@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## What creature is smarter than a talking parrot? A spelling bee.
