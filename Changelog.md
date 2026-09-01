@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## I gave all my dead batteries away today, free of charge.
