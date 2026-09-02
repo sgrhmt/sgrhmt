@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## What's black and white and read all over? The newspaper.
