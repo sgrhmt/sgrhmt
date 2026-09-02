@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## What’s E.T. short for? He’s only got little legs.
