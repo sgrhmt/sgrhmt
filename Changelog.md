@@ -1,1 +1,1 @@
-## Have you heard the story about the magic tractor? It drove down the road and turned into a field.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
