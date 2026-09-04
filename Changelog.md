@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## It doesn't matter how much you push the envelope. It will still be stationary.
