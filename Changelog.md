@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## What’s E.T. short for? He’s only got little legs.
