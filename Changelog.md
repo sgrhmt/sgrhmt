@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## What did Yoda say when he saw himself in 4K? "HDMI"
