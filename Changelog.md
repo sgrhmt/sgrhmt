@@ -1,1 +1,1 @@
-## What type of music do balloons hate? Pop music!
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
