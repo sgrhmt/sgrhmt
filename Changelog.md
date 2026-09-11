@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
