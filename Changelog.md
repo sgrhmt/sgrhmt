@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
