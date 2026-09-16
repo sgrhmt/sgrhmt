@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
