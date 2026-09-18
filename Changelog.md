@@ -1,1 +1,1 @@
-## What did the dog say to the two trees? Bark bark.
+## What animal is always at a game of cricket? A bat.
