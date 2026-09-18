@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Who is the coolest Doctor in the hospital? The hip Doctor!
