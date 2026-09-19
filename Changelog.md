@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
