@@ -1,1 +1,1 @@
-## I am terrified of elevators. I’m going to start taking steps to avoid them.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
