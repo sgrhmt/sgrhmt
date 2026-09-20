@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## My boss told me to attach two pieces of wood together... I totally nailed it!
