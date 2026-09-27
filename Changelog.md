@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
