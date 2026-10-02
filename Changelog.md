@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## When is a door not a door? When it's ajar.
