@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
