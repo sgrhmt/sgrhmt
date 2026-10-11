@@ -1,1 +1,1 @@
-## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
