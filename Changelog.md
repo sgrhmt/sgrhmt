@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
