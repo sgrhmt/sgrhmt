@@ -1,1 +1,1 @@
-## I am terrified of elevators. I’m going to start taking steps to avoid them.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
