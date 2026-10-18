@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## I was thinking about moving to Moscow but there is no point Russian into things.
