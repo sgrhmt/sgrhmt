@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## I broke my finger at work today, on the other hand I'm completely fine.
