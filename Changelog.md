@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
