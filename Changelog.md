@@ -1,1 +1,1 @@
-## Archaeology really is a career in ruins.
+## Why did the tomato blush? Because it saw the salad dressing.
