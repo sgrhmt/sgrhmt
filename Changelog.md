@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## I had a dream that I was a muffler last night. I woke up exhausted!
