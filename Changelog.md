@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## Why did the barber win the race? He took a short cut.
