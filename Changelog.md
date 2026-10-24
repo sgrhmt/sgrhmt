@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
