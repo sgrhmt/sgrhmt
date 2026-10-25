@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
