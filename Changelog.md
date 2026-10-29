@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## This is my step ladder. I never knew my real ladder.
