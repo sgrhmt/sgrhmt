@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
