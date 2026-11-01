@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
