@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## What did the left eye say to the right eye? Between us, something smells!
