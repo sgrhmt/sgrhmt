@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
