@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
