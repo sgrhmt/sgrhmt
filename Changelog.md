@@ -1,1 +1,1 @@
-## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
