@@ -1,1 +1,1 @@
-## "What time is it?" I don't know... it keeps changing.
+## Why do pirates not know the alphabet? They always get stuck at "C".
