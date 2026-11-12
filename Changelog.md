@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## I’m on a whiskey diet. I’ve lost three days already.
