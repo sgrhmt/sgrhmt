@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## I’m on a whiskey diet. I’ve lost three days already.
