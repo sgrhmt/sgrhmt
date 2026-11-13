@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## The urge to sing the Lion King song is just a whim away.
