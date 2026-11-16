@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
