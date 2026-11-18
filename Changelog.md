@@ -1,1 +1,3 @@
-## What don't watermelons get married? Because they cantaloupe.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
