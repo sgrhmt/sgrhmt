@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## What don't watermelons get married? Because they cantaloupe.
