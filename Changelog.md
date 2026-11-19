@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## A farmer had 297 cows, when he rounded them up, he found he had 300
