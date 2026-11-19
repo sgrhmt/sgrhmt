@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## I'm glad I know sign language, it's pretty handy.
