@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## What did the 0 say to the 8? Nice belt.
