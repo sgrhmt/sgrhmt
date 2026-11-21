@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
