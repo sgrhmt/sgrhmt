@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## Coffee has a tough time at my house, every morning it gets mugged.
