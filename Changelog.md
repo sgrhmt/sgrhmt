@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## You can't trust a ladder. It will always let you down
