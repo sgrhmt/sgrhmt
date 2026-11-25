@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## How do hens stay fit? They always egg-cercise!
