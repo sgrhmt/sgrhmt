@@ -1,1 +1,1 @@
-## Why do nurses carry around red crayons? Sometimes they need to draw blood.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
