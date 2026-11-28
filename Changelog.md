@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
